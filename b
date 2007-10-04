@@ -849,3 +849,380 @@ bảy
 bazan
 bazooka
 bazơ
+bắc
+bắc bán cầu
+bắc bậc
+bắc bậc kiêu kì
+bắc bậc kiêu kỳ
+bắc bật làm cao
+bắc cầu
+Bắc Cực
+bắc cực quyền
+Bắc Đẩu
+bắc nam
+bắc sài hồ
+băm
+băm bổ
+băm vằm
+bằm
+bặm
+bặm trợn
+băn khoăn
+bằn bặt
+bẳn
+bẳn cáu
+bẳn gắt
+bẳn tính
+bắn
+bắn bổng
+bắn chác
+bắn mìn
+bắn tẩy
+bắn tiếng
+bắn tốc độ
+băng
+băng bó
+băng ca
+băng chuyền
+băng đạn
+băng đảng
+băng đảo
+băng đăng
+băng giá
+băng-giô
+băng hà
+băng hình
+băng hoại
+băng huyết
+băng lăn
+băng nhạc
+băng nhân
+băng nhóm
+băng phiến
+băng rôn
+băng sơn
+băng tải
+băng thông rộng
+băng tuyết
+băng từ
+băng vệ sinh
+băng video
+băng xăng
+bằng
+bằng an
+bằng bặn
+bằng cấp
+bằng chân như vại
+bằng chứng
+bằng cớ
+bằng cứ
+bằng hữu
+bằng không
+bằng lăng
+bằng lặng
+bằng lòng
+bằng mặt chẳng bằng lòng
+bằng mặt mà chẳng bằng lòng
+bằng phẳng
+bằng sáng chế
+bằng sắc
+bằng thừa
+bằng trắc
+bằng vai
+bằng vai phải lứa
+bẵng
+bắng nhắng
+bặng nhặng
+bắp
+bắp cải
+bắp cày
+bắp chân
+bắp chuối
+bắp cơ
+bắp đùi
+bắp ngô
+bắp tay
+bắp thịt
+bắp vế
+bắt
+bắt ấn
+bắt bánh
+bắt bẻ
+bắt bí
+bắt bóng đè chừng
+bắt bồ
+bắt bớ
+bắt buộc
+bắt cá hai tay
+bắt cái
+bắt chẳng được tha làm phúc
+bắt chân chữ ngũ
+bắt chẹt
+bắt chợt
+bắt chuồn chuồn
+bắt chuyện
+bắt chước
+bắt cóc
+bắt cóc bỏ đĩa
+bắt cô trói cột
+bắt đầu
+bắt đầu từ
+bắt đền
+bắt ép
+bắt gặp
+bắt giọng
+bắt giữ
+bắt khoan bắt nhặt
+bắt khoán
+bắt mạch
+bắt mắt
+bắt mối
+bắt nạt
+bắt ne bắt nét
+bắt nét
+bắt nguồn
+bắt nhạy
+bắt nhân tình
+bắt nhịp
+bắt nọn
+bắt nợ
+bắt quyết
+bắt rễ
+bắt tay
+bắt tận tay day tận mặt
+bắt tận tay day tận trán
+bắt thăm
+bắt thóp
+bắt thường
+bắt tình
+bắt tội
+bắt tréo
+bắt vạ
+bặt
+bặt tăm
+bặt thiệp
+bặt vô âm tín
+bấc
+bậc
+bậc tam cấp
+bầm
+bầm gan tím ruột
+bầm giập
+bẩm
+bẩm báo
+bẩm chất
+bẩm sinh
+bẩm tính
+bẫm
+bấm
+bấm bụng
+bấm chí
+bấm độn
+bấm đốt
+bấm gan
+bấm giờ
+bấm ngọn
+bấm ra sữa
+bậm
+bậm bạch
+bậm bạp
+bậm trợn
+bần
+bần bách
+bần bật
+bần cố
+bần cố nông
+bần cùng
+bần cùng hoá
+bần cùng khố bệnh
+bần đạo
+bần hàn
+bần huyết
+bần nông
+bần sĩ
+bần tăng
+bần thần
+bần tiện
+bẩn
+bẩn mình
+bẩn thẩn bần thần
+bẩn thỉu
+bấn
+bấn bít
+bấn bíu
+bấn loạn
+bận
+bận bịu
+bận lòng
+bận mọn
+bận rộn
+bận tâm
+bâng khuâng
+bâng lâng
+bâng quơ
+bấng
+bấp ba bấp bênh
+bấp bênh
+bập
+bập bà bập bềnh
+bập bà bập bõm
+bập bà bập bùng
+bập bẹ
+bập bênh
+bập bềnh
+bập bõm
+bập bồng
+bập bỗng
+bập bung
+bập bùng
+bất
+bất an
+bất bạo động
+bất bằng
+bất biến
+bất bình
+bất cần
+bất cẩn
+bất cập
+bất chấp
+bất chính
+bất chợt
+bất công
+bất cộng đái thiên
+bất cứ
+bất di bất dịch
+bất diệt
+bất đắc chí
+bất đắc kì tử
+bất đắc kỳ tử
+bất đẳng thức
+bất định
+bất đồ
+bất đồng
+bất động
+bất động sản
+bất giác
+bất hạnh
+bất hảo
+bất hiếu
+bất hoà
+bất hợp lệ
+bất hợp lí
+bất hợp lý
+bất hợp pháp
+bất hợp tác
+bất hủ
+bất kể
+bất khả
+bất khả chiến bại
+bất khả kháng
+bất khả thi
+bất khả tri luận
+bất khả xâm phạm
+bất kham
+bất khuất
+bất kì
+bất kính
+bất kỳ
+bất lợi
+bất luận
+bất lực
+bất lương
+bất mãn
+bất minh
+bất mục
+bất nghi
+bất nghĩa
+bất ngờ
+bất nhã
+bất nhân
+bất nhẫn
+bất nhất
+bất như ý
+bất nhược
+bất ổn
+bất phân thắng bại
+bất phương trình
+bất quá
+bất tài
+bất tận
+bất tất
+bất thành
+bất thành cú
+bất thành văn
+bất thần
+bất thình lình
+bất thường
+bất tiện
+bất tín
+bất tín nhiệm
+bất tình
+bất tỉnh
+bất tỉnh nhân sự
+bất trắc
+bất trị
+bất trung
+bất túc
+bất tử
+bất tường
+bất ý
+bật
+bật đèn xanh
+bật lò xo
+bật lửa
+bật mí
+bật tường
+bâu
+bầu
+bầu bán
+bầu bạn
+bầu bầu
+bầu bậu
+bầu bĩnh
+bầu chọn
+bầu chủ
+bầu cử
+bầu dục
+bầu đàn thê tử
+bầu đoàn
+bầu đoàn thê tử
+bầu đông
+bầu eo
+bầu giác
+bầu hâm
+bầu không khí
+bầu nậm
+bầu ngưng
+bầu rượu túi thơ
+bầu sao
+bầu trời
+bấu
+bấu chí
+bấu véo
+bậu
+bậu cửa
+bậu xậu
+bây
+bây bẩy
+bây chừ
+bây giờ
+bây nhiêu
+bầy
+bầy hầy
+bầy nhầy
+bầy tôi
+bầy trẻ
+bẩy
+bẫy
+bẫy cò ke
+bấy
+bấy bớt
+bấy chày
+bấy chầy
+bấy chừ
+bấy giờ
+bấy lâu
+bấy nay
+bấy nhiêu
+bậy
+bậy bạ
