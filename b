@@ -1226,3 +1226,91 @@ bấy nay
 bấy nhiêu
 bậy
 bậy bạ
+BCH
+be
+be be
+be bé
+be bét
+bè
+bè bạn
+bè bè
+bè cánh
+bè đảng
+bè lũ
+bè phái
+bẻ
+bẻ bai
+bẻ bão
+bẻ cò
+bẻ ghi
+bẻ hành bẻ tỏi
+bẻ hoẹ
+bẻ khoá
+bẻ khục
+bẻ lái
+bẽ
+bẽ bàng
+bẽ mặt
+bé
+bé bỏng
+bé cái lầm
+bé con
+bé dại
+bé hạt tiêu
+bé hoẻn
+bé không vin lớn gãy cành
+bé mọn
+bé nhỏ
+bé xé ra to
+bẹ
+bẹ mèo
+béc giê
+bem
+bẻm mép
+ben-den
+bèn
+bèn bẹt
+bẽn lẽn
+bén
+bén gót
+bén mảng
+bén ngót
+bẹn
+beng
+béng
+benzen
+beo
+beo béo
+bèo
+bèo bọt
+bèo cái
+bèo cám
+bèo dâu
+bèo hoa dâu
+bèo hợp mây tan
+bèo lục bình
+bèo Nhật Bản
+bèo nhèo
+bèo mây
+bèo ong
+bèo tấm
+bèo tây
+bèo trôi sóng vỗ
+bẻo lẻo
+béo
+béo bở
+béo mỡ
+béo múp
+béo núc
+béo nung núc
+béo quay
+béo tốt
+bẹo
+bép xép
+bẹp
+bét
+bét be
+bét nhè
+bét tĩ
+bẹt
+beta
