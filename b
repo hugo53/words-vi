@@ -2360,3 +2360,73 @@ bột mài
 bột ngọt
 bột nở
 bột phát
+bơ
+bơ lơ
+bơ phờ
+bơ thờ
+bơ thừa sữa cặn
+bơ vơ
+bờ
+bờ bến
+bờ bụi
+bờ cõi
+bờ giậu
+bờ khoảnh
+bờ lu
+bờ lu dông
+bờ mẫu
+bờ quai
+bờ rào
+bờ thửa
+bờ vùng
+bờ xôi ruộng mặt
+bở
+bở hơi tai
+bở vía
+bỡ ngỡ
+bớ
+bợ
+bợ đít
+bợ đỡ
+bơi
+bơi bướm
+bơi chó
+bơi ếch
+bơi lội
+bơi nhái
+bơi sải
+bơi trải
+bời bời
+bời lời
+bởi
+bởi chưng
+bởi thế
+bởi vậy
+bởi vì
+bới
+bới bèo ra bọ
+bới lông tìm vết
+bới móc
+bơm
+bơm chân không
+bờm
+bờm xơm
+bờm xờm
+bợm
+bợm bãi
+bợm già
+bợm già mắc bẫy
+bơn
+bỡn
+bỡn bờ
+bỡn cợt
+bợn
+bớp
+bợp
+bớt
+bớt miệng
+bớt mồm bớt miệng
+bớt xén
+bót xớ
+bợt
+bợt bạt
