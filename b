@@ -2430,3 +2430,315 @@ bớt xén
 bót xớ
 bợt
 bợt bạt
+Br
+brom
+bromua bạc
+bromur bạc
+bu
+bu bám
+bu-gi
+bu lông
+bu lu
+bù
+bù chì
+bù đắp
+bù đầu
+bù giá
+bù khú
+bù loong
+bù lỗ
+bù lu bù loa
+bù nhìn
+bù trả
+bù trì
+bù trừ
+bù xù
+bủ
+bú
+bú dù
+bụ
+bụ bẫm
+bụ sữa
+bua
+bùa
+bùa bả
+bùa chú
+bùa cứu mạng
+bùa hộ mệnh
+bùa hộ thân
+bùa mê bả dột
+bùa mê thuốc lú
+bùa yêu
+bủa
+bủa vây
+búa
+búa chém
+búa chèn
+búa đanh
+búa đinh
+búa gió
+búa rìu
+búa tạ
+búa xua
+bục
+bugi
+bùi
+bùi ngùi
+bùi nhùi
+bùi tai
+búi
+búi rễ
+búi tó
+bụi
+bụi bặm
+bụi bậm
+bụi bờ
+bụi đời
+bụi hồng
+bụi trần
+buji
+bùm tum
+bụm
+bùn
+bùn hoa
+bùn lầy
+bùn lầy nước đọng
+bùn nhơ
+bùn non
+bủn
+bủn nhủn
+bủn xỉn
+bún
+bún bò
+bún chả
+bún tàu
+bún thang
+bung
+bung bủng
+bung búng
+bung xung
+bùng
+bùng binh
+bùng bục
+bùng bùng
+bùng nhùng
+bùng nổ
+bùng nổ dân số
+bùng phát
+bủng
+bủng beo
+búng
+búng báng
+búng khẩy
+búng ra sữa
+bụng
+bụng bảo dạ
+bụng dạ
+bụng dưới
+bụng làm dạ chịu
+bụng nhụng
+bunker
+buộc
+buộc chỉ chân voi
+buộc chỉ cổ tay
+buộc lòng
+buộc ràng
+buộc tội
+buổi
+buổi đực buổi cái
+buổi mai
+buồm
+buôn
+buôn bán
+buôn buốt
+buôn chuyến
+buôn có bạn bán có phường
+buôn dân bán nước
+buôn gánh bán bưng
+buôn gian bán lận
+buôn hàng xxách
+buôn làng
+buôn lậu
+buôn người
+buôn nước bọt
+buôn phấn bán hương
+buôn phấn bán son
+buôn thần bán thánh
+buôn thúng bán bưng
+buồn
+buồn bã
+buồn bực
+buồn cười
+buồn đau
+buồn hiu
+buồn nủ
+buồn ngủ gặp chiếu manh
+buồn nôn
+buồn phiền
+buồn rầu
+buồn rười rượi
+buồn rượi
+buồn tẻ
+buồn teo
+buồn tênh
+buồn thảm
+buồn thiu
+buồn thỉu
+buồn thỉu buồn thiu
+buồn tình
+buồn tủi
+buồn xo
+buông
+buông lỏng
+buông lơi
+buông tha
+buông thả
+buông thõng
+buông trôi
+buông tuồng
+buông xõng
+buông xuôi
+buồng
+buồng đào
+buồng giấy
+buồng hương
+buồng khuê
+buồng lái
+buồng máy
+buồng the
+buồng thêu
+buồng tối
+buồng trứng
+buốt
+buột
+buột miệng
+buột tay
+búp
+búp bê
+búp phê
+bút
+bút bi
+bút chì
+bút chiến
+bút chổi
+bút dạ
+bút danh
+bút đàm
+bút điện
+bút giá
+bút hiệu
+bút kí
+bút lông
+bút lục
+bút lực
+bút máy
+bút nghiên
+bút pháp
+bút sa gà chết
+bút tích
+bút toán
+bụt
+bụt chùa nhà không thiêng
+bụt mọc
+bứ
+bứ bừ
+bứ bự
+bự
+bừa
+bừa bãi
+bừa bộn
+bừa chữ nhi
+bừa phứa
+bửa
+bữa
+bữa cơm bữa cháo
+bữa đói bữa no
+bữa đực bữa cái
+bữa kia
+bữa mai
+bữa nay
+bữa no bữa đói
+bữa qua
+bữa ni
+bữa tê
+bứa
+bựa
+bức
+bức bách
+bức bối
+bức cung
+bức hại
+bức hiếp
+bức hôn
+bức thiết
+bức tử
+bức xạ
+bức xạ cảm ứng
+bức xúc
+bực
+bực bõ
+bực bội
+bực dọc
+bực mình
+bực tức
+bưng
+bưng bê
+bưng biền
+bưng bít
+bưng kín miệng bình
+bưng tai giả điếc
+bừng
+bừng bừng
+bửng
+bứng
+bựn
+bước
+bước đầu
+bước đi
+bước đường
+bước ngoặt
+bước nhảy vọt
+bước sóng
+bước thấp bước cao
+bước tiến
+bươi
+bưởi
+bưởi đào
+bưởi đường
+bươm
+bươm bướm
+bướm
+bướm chán ong chường
+bướm lả ong lơi
+bướm ong
+bươn
+bươn bả
+bươn chải
+bương
+bưởng
+bưởng trưởng
+bướng
+bướng bỉnh
+bướp
+bươu
+bướu
+bướu cổ
+bướu giáp
+bứt
+bứt phá
+bứt rứt
+bựt
+bưu ảnh
+bưu chánh
+bưu chính
+bưu cục
+bưu điện
+bưu gửi
+bưu kiện
+bưu phẩm
+bưu phí
+bưu tá
+bưu thiếp
+bửu bối
+BXL
+byte
