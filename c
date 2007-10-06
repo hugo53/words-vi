@@ -2021,3 +2021,442 @@ chết tươi
 chết vinh còn hơn sống nhục
 chết xác
 chết yểu
+chi
+chi bằng
+chi bộ
+chi chát
+chi chi chành chành
+chi chít
+chi chút
+chi cục
+chi dùng
+chi dụng
+chi điếm
+chi đoàn
+chi đội
+chi hội
+chi khu
+chi li
+chi nhánh
+chi pháp
+chi phí
+chi phí lưu thông
+chi phí sản xuất
+chi phối
+chi thu
+chi tiết
+chi tiêu
+chi trả
+chi tử
+chi uỷ
+chi uỷ viên
+chi viện
+chì
+chì chiết
+chì than
+chỉ
+chỉ bảo
+chỉ dẫn
+chỉ dụ
+chỉ đạo
+chỉ đâu đánh đấy
+chỉ đâu đánh đó
+chỉ điểm
+chỉ định
+chỉ được cái
+chỉ giáo
+chỉ giới
+chỉ huy
+chỉ huy dàn nhạc
+chỉ huy phó
+chỉ huy sở
+chỉ lệnh
+chỉ mảnh tơ mành
+chỉ mỗi tội
+chỉ nam
+chỉ số
+chỉ số hiđro
+chỉ số hydrogen
+chỉ tay năm ngón
+chỉ thị
+chỉ thiên
+chỉ thực
+chỉ tiêu
+chỉ tội
+chỉ trích
+chỉ trỏ
+chỉ vẽ
+chỉ xác
+chỉ ý
+chí
+chí cha chí chát
+chí chát
+chí chết
+chí choé
+chí công
+chí công vô tư
+chí cốt
+chí cùng lực kiệt
+chí hiếu
+chí hướng
+chí ít
+chí khí
+chí lí
+chí lý
+chí mạng
+chí nguyện
+chí nguyện quân
+chí sĩ
+chí thân
+chí thiện
+chí thiết
+chí thú
+chí tình
+chí tôn
+chí tuyến
+chí tử
+chị
+chị chàng
+chị em
+chị gái
+chị ngã em nâng
+chị nuôi
+chia
+chia cắt
+chia chác
+chia để trị
+chia hết cho
+chia lìa
+chia lửa
+chia ly
+chia năm xẻ bảy
+chia ngọt sẻ bùi
+chia phôi
+chia rẽ
+chia sẻ
+chia sớt
+chia tay
+chia uyên rẽ thuý
+chia vè
+chia xa
+chia xẻ
+chìa
+chìa khoá
+chìa khoá trao tay
+chìa vặn
+chìa vít
+chìa vôi
+chĩa
+chĩa ba
+chích
+chích choác
+chích choè
+chiếc
+chiếc bách
+chiếc bách sóng đào
+chiếc bóng
+chiêm
+chiêm bao
+chiêm chiếp
+chiêm khê mùa thối
+chiêm nghiệm
+chiêm ngưỡng
+chiêm tinh
+chiêm tinh học
+chiêm trụng
+chiếm
+chiếm cứ
+chiếm dụng
+chiếm đoạt
+chiếm đóng
+chiếm giữ
+chiếm hữu
+chiếm lĩnh
+chiên
+chiền
+chiền chiền
+chiền chiện
+chiến
+chiến bại
+chiến bào
+chiến binh
+chiến chinh
+chiến công
+chiến cụ
+chiến cục
+chiến cuộc
+chiến dịch
+chiến đấu
+chiến đấu cơ
+chiến địa
+chiến hạm
+chiến hào
+chiến hữu
+chiến khu
+chiến lợi phẩm
+chiến luỹ
+chiến lược
+chiến lược quân sự
+chiến mã
+chiến phí
+chiến sĩ
+chiến sĩ quyết thắng
+chiến sĩ thi đua
+chiến sử
+chiến sự
+chiến thắng
+chiến thuật
+chiến thuyền
+chiến thương
+chiến tích
+chiến tranh
+chiến tranh cục bộ
+chiến tranh du kích
+chiến tranh đế quốc
+chiến tranh giải phóng
+chiến tranh hạt nhân
+chiến tranh lạnh
+chiến tranh nhân dân
+chiến tranh nóng
+chiến tranh phá hoại
+chiến tranh tâm lí
+chiến tranh vi trùng
+chiến trận
+chiến trường
+chiến tuyến
+chiến tướng
+chiến xa
+chiêng
+chiềng
+chiếp
+chiết
+chiết áp
+chiết khấu
+chiết suất
+chiết trung
+chiết trung chủ nghĩa
+chiết tự
+chiết xuất
+chiêu
+chiêu an
+chiêu bài
+chiêu binh
+chiêu binh mãi mã
+chiêu dân
+chiêu dụ
+chiêu đãi
+chiêu đãi sở
+chiêu đãi viên
+chiêu đăm
+chiêu đề
+chiêu hàng
+chiêu hiền
+chiêu hiền đãi sĩ
+chiêu hồi
+chiêu hồn
+chiêu khách
+chiêu mộ
+chiêu nạp
+chiêu phủ
+chiêu sinh
+chiêu tập
+chiêu thức
+chiều
+chiều chiều
+chiều chuộng
+chiều hôm
+chiều hướng
+chiều như chiều vong
+chiều qua
+chiều tà
+chiều tối
+chiểu
+chiếu
+chiếu án
+chiếu bóng
+chiếu chỉ
+chiếu cố
+chiếu danh
+chiếu đậu
+chiếu điện
+chiếu đồ
+chiếu lệ
+chiếu manh
+chiếu nghỉ
+chiếu phim
+chiếu rọi
+chiếu thư
+chiếu tướng
+chiếu xạ
+chim
+chim báo bão
+chim cánh cụt
+chim chích
+chim chóc
+chim chuột
+chim cút
+chim đầu đàn
+chim gáy
+chim hát bội
+chim khách
+chim khuyên
+chim lồng cá chậu
+chim lợn
+chim mồi
+chim mồi chó săn
+chim muông
+chim ngói
+chim phường chèo
+chim rì
+chim sa cá lặn
+chim sâu
+chim sẻ
+chim thằng chài
+chim thầyy bói
+chim trời cá nước
+chim xanh
+chìm
+chìm đắm
+chìm lỉm
+chìm ngập
+chìm nghỉm
+chìm nổi
+chìm xuồng
+chin chít
+chỉn
+chỉn chu
+chín
+chín bệ
+chín bỏ làm mười
+chín bói
+chín cây
+chín chắn
+chín chữ cù lao
+chín ép
+chín mé
+chín mòm
+chín mõm
+chín muồi
+chín người mười ý
+chín rộ
+chín rục
+chín sáp
+chín suối
+chín sữa
+chín tầng mây
+chín tới
+chín trùng
+chinh an
+chinh chiến
+chinh phạt
+chinh phu
+chinh phụ
+chinh phục
+chinh yên
+chình ình
+chỉnh
+chỉnh đảng
+chỉnh đốn
+chỉnh hình
+chỉnh huấn
+chỉnh lí
+chỉnh lưu
+chỉnh lý
+chỉnh nghi
+chỉnh quân
+chỉnh sửa
+chỉnh tề
+chỉnh trang
+chỉnh trị
+chĩnh
+chĩnh chện
+chính
+chính âm
+chính biến
+chính chuyên
+chính cống
+chính cung
+chính cương
+chính danh
+chính diện
+chính đại quang minh
+chính đảng
+chính đáng
+chính đạo
+chính đề
+chính điện
+chính đính
+chính giới
+chính hiệu
+chính khách
+chính khí
+chính khí ca
+chính khoá
+chính kịch
+chính kiến
+chính lệnh
+chính luận
+chính ngạch
+chính nghĩa
+chính ngọ
+chính phạm
+chính phẩm
+chính phủ
+chính phủ điện tử
+chính qui
+chính quốc
+chính quy
+chính quy hoá
+chính quyền
+chính sách
+chính sách xã hội
+chính sử
+chính sự
+chính tả
+chính tang
+chính tắc
+chính tâm
+chính thất
+chính thể
+chính thị
+chính thống
+Chính Thống giáo
+chính thức
+chính thức hoá
+chính tố
+chính tông
+chính trị
+chính trị gia
+chính trị học
+chính trị phạm
+chính trị viên
+chính trực
+chính trường
+chính uỷ
+chính vụ
+chính xác
+chính yếu
+chip
+chíp hôi
+chít
+chịt
+chiu chíu
+chíu
+chíu chít
+chíu híu
+chịu
+chịu chơi
+chịu chuyện
+chịu đực
+chịu đựng
+chịu khó
+chịu lời
+chịu lửa
+chịu nhiệt
+chịu phép
+chịu tải
+chịu tang
+chịu thua
+chịu thương chịu khó
+chịu trận
+chịu trống
