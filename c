@@ -801,3 +801,118 @@ cày xóc ngang
 cáy
 cạy
 cạy cục
+cắc
+cắc ca cắc củm
+cắc cớ
+cắc củm
+cắc kè
+cặc
+cặc bần
+cặc bò
+căm
+căm căm
+căm gan
+căm ghét
+căm giận
+căm hận
+căm hờn
+căm oán
+căm phẫn
+căm thù
+căm tức
+căm uất
+căm xe
+cằm
+cắm
+cắm cổ
+cắm cúi
+cắm đầu
+cắm đầu cắm cổ
+cắm sào đợi nước
+cắm sừng
+cắm thùng
+cặm
+cặm cụi
+căn
+căn bản
+căn bệnh
+căn cắt
+căn chỉnh
+căn cơ
+căn cứ
+căn cứ du kích
+căn cứ địa
+căn cứ quân sự
+căn cước
+căn dặn
+căn do
+căn hộ
+căn ke
+căn nguyên
+căn phố
+căn số
+căn thức
+căn tố
+căn vặn
+cằn
+cằn cặt
+cằn cọc
+cằn cỗi
+cằn nhà cằn nhằn
+cằn nhằn
+cẳn nhẳn
+cắn
+cắn câu
+cắn cấu
+cắn chỉ
+cắn cỏ
+cắn hột cơm không vỡ
+cắn lộn
+cắn ổ
+cắn răng
+cắn rốn
+cắn rơm cắn cỏ
+cắn rứt
+cắn trắt
+cắn xé
+cặn
+cặn bã
+cặn kẽ
+căng
+căng cắc
+căng căng
+căng thẳng
+căng tin
+cẳng
+cẳng chân
+cẳng giò
+cẳng tay
+cắp
+cắp ca cắp củm
+cắp củm
+cặp
+cặp ba lá
+cặp bài trùng
+cặp bồ
+cặp díp
+cặp kè
+cặp kèm
+cặp lồng
+cặp mạch
+cặp nhiệt
+cặp rằng
+cặp sốt
+cắt
+cắt cầu
+cắt cổ
+cắt cơn
+cắt cúp
+cắt cử
+cắt đặt
+cắt giảm
+cắt họng
+cắt lớp
+cắt lượt
+cắt nghĩa
+cắt tiết
+cắt xén
