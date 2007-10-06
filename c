@@ -2460,3 +2460,290 @@ chịu thua
 chịu thương chịu khó
 chịu trận
 chịu trống
+chlor
+chlorat
+chlorua
+cho
+cho dù
+cho hay
+cho nên
+cho qua
+cho qua chuyện
+cho rồi
+cho xong
+chò
+chò chỉ
+chỏ hỏ
+chò nâu
+chõ
+chõ miệng
+chõ mõm
+chõ mồm
+chõ mũi
+chó
+chó ăn đá gà ăn sỏi
+chó biển
+chó cắn áo rách
+chó cậy gần nhà
+chó chê mèo lắm lông
+chó chết
+chó chui gầm chạn
+chó có váy lĩnh
+chó cùng rứt giậu
+chó đẻ
+chó đen giữ mực
+chó đểu
+chó gầy hổ mặt người nuôi
+cho ghẻ
+chó lài
+chó má
+chó ngao
+chó ngáp phải ruồi
+chó săn
+chó săn chim mồi
+chó sói
+chó tha đi mèo tha lại
+choa
+choá
+choạc
+choai
+choai choai
+choài
+choãi
+choái
+choại
+choán
+choang
+choang choác
+choang choang
+choang choảng
+choàng
+choảng
+choáng
+choáng choàng
+choáng lộn
+choáng ngợp
+choáng váng
+choạng
+choạng vạng
+choắt
+choắt cheo
+chóc
+chóc mòng
+chọc
+chọc gan
+chọc gậy bánh xe
+chọc ghẹo
+chọc giận
+chọc léc
+chọc quê
+chọc tiết
+chọc trời
+chọc trời khuấy nước
+chọc tức
+chocolate
+choe choé
+choé
+choẹ
+choen hoẻn
+choèn choèn
+choi choi
+choi chói
+chòi
+chòi mòi
+chỏi
+chói
+chói chang
+chói loà
+chói lọi
+chói ngời
+chọi
+cholesterol
+chòm
+chòm chọp
+chòm sao
+chòm xóm
+chỏm
+chỏm cầu
+chõm
+chõm choẹ
+chon chỏn
+chỏn hỏn
+chọn
+chọn lọc
+chọn lọc nhân tạo
+chọn lọc tự nhiên
+chọn lựa
+chọn mặt gửi vàng
+chọn phối
+chong
+chong chong
+chong chóng
+chòng
+chòng chành
+chòng chọc
+chòng ghẹo
+chòng vòng
+chỏng
+chỏng chơ
+chỏng gọng
+chỏng kềnh
+chỏng lỏn
+chỏng quèo
+chỏng vó
+chõng
+chóng
+chóng mặt
+chóng vánh
+choòng
+chóp
+chóp bu
+chóp chép
+chóp rễ
+chót
+chót bót
+chót vót
+chỗ
+chỗ đứng
+chỗ kín
+chỗ phạm
+chộ
+chốc chốc
+chốc lát
+chốc lở
+chốc mòng
+chồi
+chổi
+chổi cùn rế rách
+chổi rễ
+chổi sể
+chổi thanh
+chổi xể
+chỗi
+chối
+chối bay chối biến
+chối bỏ
+chối cãi
+chối từ
+chôm
+chôm chỉa
+chôm chôm
+chồm
+chồm chỗm
+chồm hổm
+chồm hỗm
+chôn
+chôn cất
+chôn chân
+chôn nhau cắt rốn
+chôn rau cắt rốn
+chồn
+chồn chân mỏi gối
+chốn
+chộn rộn
+chông
+chông ba lá
+chông chà
+chông chênh
+chông gai
+chồng
+chồng chất
+chồng chéo
+chồng chung vợ chạ
+chồng chưa cưới
+chồng lấn
+chồng loan vợ phượng
+chồng loan vợ phụng
+chồng ngồng
+chổng
+chổng gọng
+chổng kềnh
+chổng vó
+chống
+chống án
+chống báng
+chống chèo
+chống chế
+chống chếnh
+chống chỏi
+chống chọi
+chống cự
+chống đối
+chống đỡ
+chống giữ
+chống lò
+chống nạnh
+chống nẹ
+chống phá
+chống rường
+chống trả
+chộp
+chộp giật
+chốt
+chột dạ
+chơ chỏng
+chơ vơ
+chờ
+chờ chực
+chờ đợi
+chờ được vạ má đã sưng
+chờ mong
+chở
+chở che
+chở củi về rừng
+chớ
+chớ chi
+chớ có trách
+chớ thây
+chớ thấy sóng cả mà ngã tay chèo
+chợ
+chợ búa
+chợ chiều
+chợ có phiên tiền có ngữ
+chợ cóc
+chợ đen
+chợ giời
+chợ lao động
+chợ người
+chợ nổi
+chợ phiên
+chợ trời
+chợ trưa dưa héo
+chợ xanh
+chơi
+chơi bời
+chơi chữ
+chơi đẹp
+chơi đểu
+chơi đùa
+chơi khăm
+chơi ngang
+chơi nhởi
+chơi trèo
+chơi trội
+chơi vơi
+chơi với lửa
+chơi xấu
+chơi xỏ
+chới với
+chơm chởm
+chờm
+chờm bờm
+chớm
+chơn
+chờn
+chờn chợn
+chờn vờn
+chớn
+chợn
+chớp
+chớp ảnh
+chớp bể mưa nguồn
+chớp bóng
+chóp chới
+chớp chớp
+chớp nhoáng
+chợp
+chợp chờn
+chớt nhả
+chợt
