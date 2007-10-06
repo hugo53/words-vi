@@ -1806,3 +1806,218 @@ chây ì
 chây lười
 chầy
 chấy
+che
+che án
+che chắn
+che chở
+che đậy
+che giấu
+che khuất
+che kín
+che lấp
+che mờ
+che phủ
+chè
+chè bà cốt
+chè bạng
+chè bồm
+chè chén
+chè con ong
+chè đậu đãi
+chè đen
+chè đường
+chè hạt
+chè hạt lựu
+chè hoa cau
+chè hột
+chè hương
+chè kho
+chè lá
+chè lam
+chè mạn
+chè móc câu
+chè nụ
+chè tàu
+chè thuốc
+chè tươi
+chè xanh
+chẻ
+chẻ hoe
+chẻ sợi tóc làm tư
+chẻ tre
+chẽ
+ché
+chèm nhèm
+chém
+chém cha
+chém giết
+chém to kho mặn
+chém to kho nhừ
+chém tre không dè đầu mặt
+chém vè
+chen
+chen chân
+chen chúc
+chen lấn
+chen vai thích cánh
+chèn
+chèn ép
+chèn lấn
+chẽn
+chén
+chén chú chén anh
+chén hạt mít
+chén mắt trâu
+chén quan hà
+chén quân
+chén quỳnh
+chén tạc chén thù
+chén thù chén tạc
+chén tống
+chẹn
+cheo
+cheo cheo
+cheo chéo
+cheo cưới
+cheo leo
+cheo veo
+chèo
+chèo bẻo
+chèo chẹo
+chèo chống
+chèo lái
+chèo mũi
+chèo queo
+chẻo lẻo
+chéo
+chéo áo
+chéo go
+chéo khăn
+chép
+chép miệng
+chét
+chẹt
+chê
+chê bai
+chê chán
+chê cười
+chê ỏng chê eo
+chê trách
+chế
+chế áp
+chế bản
+chế biến
+chế định
+chế độ
+chế độ chiếm hữu nô lệ
+chế độ chuyên chế
+chế độ công hữu
+chế độ cộng hoà
+chế độ cộng sản nguyên thuỷ
+chế độ dân chủ
+chế độ dân chủ mới
+chế độ dân chủ nhân dân
+chế độ dân chủ tập trung
+chế độ dân chủ tư sản
+chế độ đa phu
+chế độ đa thê
+chế độ đại nghị
+chế độ đối ngẫu hôn phối
+chế độ gia trưởng
+chế độ hai viện
+chế độ hôn nhân đối ngẫu
+chế độ lưỡng viện
+chế độ một viện
+chế độ ngoại hôn
+chế độ nông nô
+chế độ phong kiến
+chế độ phong kiến phân quyền
+chế độ phong kiến tập quyền
+chế độ quân chủ
+chế độ quân chủ chuyên chế
+chế độ quân chủ lập hiến
+chế độ quần hôn
+chế độ sở hữu
+chế độ sở hữu cá nhân
+chế độ sở hữu tập thể
+chế độ sở hữu toàn dân
+chế độ sở hữu xã hội chủ nghĩa
+chế độ tạp hôn
+chế độ tập trung dân chủ
+chế độ tập trung quan liêu
+chế độ thủ trưởng
+chế độ tiền tệ
+chế độ tư bản
+chế độ tư hữu
+chế giễu
+chế hoá
+chế khoa
+chế ngự
+chế nhạo
+chế phẩm
+chế tác
+chế tài
+chế tạo
+chế tạo máy
+chế ước
+chế xuất
+chếch
+chếch chếch
+chếch lệch
+chếch mếch
+chệch
+chệch choạc
+chêm
+chễm chệ
+chễm chện
+chênh
+chênh chênh
+chênh lệch
+chênh va chênh vênh
+chênh vênh
+chềnh ềnh
+chểnh mảng
+chếnh choáng
+chệnh choạng
+chết
+chết cay chết đắng
+chết cha
+chết chẹt
+chết chóc
+chết chùm
+chết chưa
+chết chửa
+chết dở
+chết dở sống dở
+chết đầu nước
+chết điếng
+chết đuối
+chết đuối vớ được cọc
+chết đuối vớ phải cọc
+chết đứng
+chết gí
+chết giả
+chết giấc
+chết giẫm
+chết hụt
+chết không kịp ngáp
+chết mê
+chết mê chết mệt
+chết mệt
+chết mòn chết mỏi
+chết não
+chết ngóm
+chết như ngả rạ
+chết non
+chết nỗi
+chết rấp
+chết sặc gạch
+chết sống
+chết thật
+chết tiệt
+chết tốt
+chết trôi
+chết tươi
+chết vinh còn hơn sống nhục
+chết xác
+chết yểu
