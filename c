@@ -1276,3 +1276,208 @@ cấy hái
 cấy mô
 cậy
 cậy cục
+CC
+Cd
+CD
+CD-ROM
+cello
+cellulos
+Celsius
+centi-
+cha
+cha anh
+cha căng chú kiết
+cha chả
+cha chủ sự
+cha chú
+cha chung không ai khóc
+cha cố
+cha đẻ
+cha đỡ đầu
+cha đời
+cha già con cọc
+cha mẹ
+cha mẹ đặt đâu con ngồi đấy
+cha nội
+cha ông
+cha truyền con nối
+cha xứ
+chà
+chà đạp
+chà là
+chà xát
+chả
+chả bù
+chả chìa
+chả chớt
+chả giò
+chả giò rế
+chả hạn
+chả là
+chả lụa
+chả mấy khi
+chả quế
+chả trách
+chạ
+chạc
+chạch
+chạch chấu
+chai
+chai lì
+chai sạn
+chài
+chài lưới
+chải
+chải chuốt
+chái
+chàm
+chạm
+chạm bong
+chạm cốc
+chạm khảm
+chạm khắc
+chạm lộng
+chạm mặt
+chạm ngõ
+chạm nọc
+chạm nổi
+chạm súng
+chạm trán
+chạm trổ
+chan
+chan chan
+chan chát
+chan chứa
+chan hoà
+chan tương đổ mẻ
+chán
+chán chê
+chán chường
+chán đến mang tai
+chán ghét
+chán mớ đời
+chán nản
+chán ngán
+chán ngắt
+chán phè
+chán phèo
+chán vạn
+chạn
+chang
+chang bang
+chang chang
+chàng
+chàng hảng
+chàng hiu
+chàng làng
+chàng màng
+chàng mạng
+chàng ràng
+chạng
+chạng vạng
+chanh
+chanh chua
+chanh cốm
+chanh đào
+chành
+chành bành
+chành chạnh
+chành choẹ
+chánh
+chánh án
+chánh chủ khảo
+chánh hội
+chánh sứ
+chánh tổng
+chánh trương
+chánh văn phòng
+chạnh
+chạnh lòng
+chạnh niềm
+chao
+chao chát
+chao đảo
+chao đèn
+chao động
+chào
+chào bán
+chào đón
+chào đời
+chào giá
+chào hàng
+chào hỏi
+chào mào
+chào mời
+chào mừng
+chào rơi
+chào thầu
+chào xáo
+chảo
+chão
+chão chàng
+chão chuộc
+cháo
+cháo hoa
+cháo lá đa
+cháo lão
+cháo lòng
+cháo lú
+chạo
+chạp
+chạp mả
+chạp phô
+chat
+chát
+chát chúa
+chát lè
+chát xít
+chạt
+chau
+chảu
+cháu
+cháu chắt
+cháu đích tôn
+chay
+chay tịnh
+chày
+chày cối
+chảy
+chảy máu
+chảy rữa
+cháy
+cháy bỏng
+cháy chợ
+cháy nhà ra mặt chuột
+cháy thành vạ lây
+cháy túi
+chạy
+chạy án
+chạy ăn
+chạy bàn
+chạy bữa
+chạy chẳng khỏi trời
+chạy chọt
+chạy chợ
+chạy chữa
+chạy dai sức
+chạy đằng giời
+chạy đằng trời
+chạy điện
+chạy đôn chạy đáo
+chạy đua
+chạy đua vũ trang
+chạy gằn
+chạy hậu
+chạy hiệu
+chạy làng
+chạy long tóc gáy
+chạy mánh
+chạy ngược chạy xuôi
+chạy như cờ lông công
+chạy sấp chạy ngửa
+chạy sô
+chạy tàu
+chạy thầy chạy thuốc
+chạy tội
+chạy vạy
+chạy việt dã
