@@ -1481,3 +1481,328 @@ chạy thầy chạy thuốc
 chạy tội
 chạy vạy
 chạy việt dã
+chắc
+chắc ăn
+chắc chắn
+chắc chân
+chắc dạ
+chắc hẳn
+chắc lép
+chắc mẩm
+chắc như cua gạch
+chắc như đinh đóng cột
+chắc nình nịch
+chắc nịch
+chắc quá hoá lép
+chắc tay
+chắc xanh
+chặc lưỡi
+chăm
+chăm bẳm
+chăm bẵm
+chăm bón
+chăm chăm
+chăm chắm
+chăm chỉ
+chăm chú
+chăm chút
+chăm lo
+chăm nom
+chăm sóc
+chằm
+chằm bặp
+chằm chằm
+chằm chặp
+chắm chúi
+chặm
+chăn
+chăn chiên
+chăn chiếu
+chăn dắt
+chăn đơn gối chiếc
+chăn gối
+chăn nuôi
+chăn nuôi công nghiệp
+chăn thả
+chằn chặn
+chằn tinh
+chẵn
+chẵn lẻ
+chắn
+chắn bóng
+chắn bùn
+chắn cạ
+chắn song
+chắn xích
+chặn
+chặn đứng
+chặn hậu
+chặn họng
+chăng
+chăng nữa
+chằng
+chằng chằng
+chằng chéo
+chằng chịt
+chẳng
+chẳng bù
+chẳng đâu vào đâu
+chẳng hạn
+chẳng là
+chẳng lẽ
+chẳng mấy chốc
+chẳng mấy khi
+chẳng mấy nỗi
+chẳng nhẽ
+chẳng những
+chẳng nói chẳng rằng
+chẳng nữa
+chẳng qua
+chẳng ra làm sao
+chẳng thể
+chẳng trách
+chặng
+chắp
+chắp cánh
+chắp cánh liền cành
+chắp nhặt
+chắp nối
+chắp tay rủ áo
+chắp vá
+chặp
+chắt
+chắt bóp
+chắt chiu
+chắt gạn
+chắt lọc
+chắt lót
+chặt
+chặt chẽ
+chặt chịa
+chặt đẹp
+chậc
+châm
+châm bẩm
+châm biếm
+châm chích
+châm chọc
+châm chước
+châm cứu
+châm ngôn
+chầm bập
+chầm chậm
+chầm chập
+chầm vập
+chẩm
+chấm
+chấm ảnh
+chấm câu
+châm dôi
+chấm dứt
+chấm hết
+chấm hỏi
+chấm lửng
+chấm mút
+chấm phá
+chấm phát đền
+chấm phảy
+chấm phẩy
+chấm than
+chậm
+chậm chà chậm chạp
+chậm chạp
+chậm rãi
+chậm rì
+chậm rì rì
+chậm tiến
+chậm trễ
+chân
+chân chất
+chân chấu
+chân chỉ
+chân chỉ hạt bột
+chân chim
+chân chính
+chân cứng đá mềm
+chân dung
+chân đăm đá chân chiêu
+chân đất
+chân đế
+chân đồng vai sắt
+chân đốt
+chân giả
+chân giá trị
+chân giày chân dép
+chân giò
+chân gỗ
+chân hàng
+chân không
+chân kiềng
+chân kính
+chân lấm tay bùn
+chân lí
+chân lí khách quan
+chân lí tuyệt đối
+chân lí tương đối
+chân lý
+chân lý khách quan
+chân lý tuyệt đối
+chân lý tương đối
+chân mày
+chân mây
+chân mây cuối trời
+chân nam đá chân chiêu
+chân nâng
+chân như
+chân phương
+chân què
+chân quê
+chân quì
+chân quỳ
+chân rết
+chân son mình rỗi
+chân tài
+chân tay
+chân thành
+chân thật
+chân thực
+chân tình
+chân tơ kẽ tóc
+chân trong chân ngoài
+chân trời
+chân trời góc bể
+chân trời góc biển
+chân tu
+chân tướng
+chân ướt chân ráo
+chân vạc
+chân váy
+chân vịt
+chân voi
+chân vòng kiềng
+chân xác
+chân yếu tay mềm
+chần
+chần chờ
+chần chừ
+chẩn
+chẩn bần
+chẩn bệnh
+chẩn đoán
+chẩn mạch
+chẩn tế
+chẩn trị
+chấn
+chấn chỉnh
+chấn động
+chấn hưng
+chấn lưu
+chấn song
+chấn thương
+chấn tử
+chận
+châng hẩng
+chấp
+chấp bút
+chấp cha chấp chới
+chấp chiếm
+chấp chính
+chấp choá
+chấp chới
+chấp hành
+chấp kinh
+chấp nê
+chấp nệ
+chấp nhặt
+chấp nhận
+chấp nhất
+chấp pháp
+chấp thuận
+chấp uy
+chấp uỷ
+chập
+chập chà chập chờn
+chập cheng
+chập choạng
+chập chồng
+chập chờn
+chập chùng
+chập chững
+chập mạch
+chập tối
+chất
+chất bán dẫn
+chất béo
+chất bốc
+chất bôi trơn
+chất cháy
+chất chỉ thị
+chất chồng
+chất chứa
+chất chưởng
+chất dẻo
+chất điểm
+chất độc
+chất độc màu da cam
+chất đốt
+chất hữu cơ
+chất kết dính
+chất khí
+chất khử
+chất liệu
+chất lỏng
+chất lượng
+chất lưu
+chất ngất
+chất nguyên sinh
+chất nổ
+chất phác
+chất rắn
+chất thải
+chất vấn
+chất vô cơ
+chất xám
+chất xúc tác
+chật
+chật chà chật chưỡng
+chật chội
+chật cứng
+chật hẹp
+chật ních
+chật vật
+châu
+châu báu
+châu chấu
+châu chấu đá xe
+châu chấu đá voi
+châu lệ
+châu lị
+châu lục
+châu lỵ
+châu mục
+châu ngọc
+châu thành
+châu thổ
+Châu Trần
+châu về Hợp Phố
+chầu
+chầu chẫu
+chầu chực
+chầu Diêm Vương
+chầu giời
+chầu hẫu
+chầu ông bà ông vải
+chầu rìa
+chầu trời
+chầu văn
+chẩu
+chẫu chàng
+chẫu chuộc
+chấu
+chậu
+chậu thau
+chây
+chây ì
+chây lười
+chầy
+chấy
