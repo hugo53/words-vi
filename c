@@ -916,3 +916,363 @@ cắt lượt
 cắt nghĩa
 cắt tiết
 cắt xén
+cấc lấc
+câm
+câm họng
+câm lặng
+câm miệng hến
+câm như hến
+câm nín
+cầm
+cầm bằng
+cầm bờ
+cầm canh
+cầm cân nảy mực
+cầm cân nẩy mực
+cầm cập
+cầm chắc
+cầm chân
+cầm chầu
+cầm chừng
+cầm cố
+cầm cờ chạy hiệu
+cầm cự
+cầm đã bén dây
+cầm đầu
+cầm đèn chạy trước ô tô
+cầm đồ
+cầm giữ
+cầm hơi
+cầm kì thi hoạ
+cầm lòng
+cầm quân
+cầm quyền
+cầm sắt
+cầm thú
+cầm tinh
+cầm trịch
+cầm tù
+cẩm
+cẩm bào
+cẩm châu
+cẩm chướng
+cẩm lai
+cẩm nang
+cẩm nhung
+cẩm tâm tú khẩu
+cẩm thạch
+cẩm tú
+cấm
+cấm binh
+cấm ca cấm cảu
+cấm cản
+cấm cảu
+cấm cẳn
+cấm chỉ
+cấm chợ ngăn sông
+cấm cố
+cấm cung
+cấm cửa
+cấm địa
+cấm đoán
+cấm khẩu
+cấm kị
+cấm quân
+cấm thành
+cấm tiệt
+cấm vận
+cấm vệ
+cân
+cân bàn
+cân bằng
+cân cấn
+cân chìm
+cân đai
+cân đĩa
+cân đo
+cân đo đong đếm
+cân đong
+cân đong đo đếm
+cân đối
+cân đồng hồ
+cân hơi
+cân kẹo
+cân móc hàm
+cân não
+cân nhắc
+cân quắc
+cân ta
+cân tay
+cân tiểu li
+cân treo
+cân tự động
+cân xô
+cân xứng
+cần
+cần cẩu
+cần cù
+cần dại
+cần đốp
+cần kiệm
+cần kíp
+cần lao
+cần mẫn
+cần sa
+cần ta
+cần tây
+cần thiết
+cần trục
+cần vọt
+cần vụ
+cần vương
+cần xé
+cần yếu
+cẩn
+cẩn mật
+cẩn phong
+cẩn tắc
+cẩn tắc vô ưu
+cẩn thận
+cẩn trọng
+cấn
+cấn cá
+cấn cái
+cấn trừ
+cận
+cận cảnh
+cận chiến
+cận dưới
+cận đại
+cận kề
+cận kim
+cận nhiệt đới
+cận thành
+cận thị
+cận trạng
+cận trên
+cận vệ
+câng
+câng câng
+cấp
+cấp bách
+cấp báo
+cấp bậc
+cấp bộ
+cấp cứu
+cấp dưỡng
+cấp điện
+cấp độ
+cấp hiệu
+cấp nước
+cấp phát
+cấp phí
+cấp phối
+cấp số cộng
+cấp số nhân
+cấp tập
+cấp thiết
+cấp thoát nước
+cấp thời
+cấp tiến
+cấp tiến chủ nghĩa
+cấp tính
+cấp tốc
+cấp uỷ
+cấp uỷ viên
+cấp vốn
+cập
+cập kèm
+cập kê
+cập kênh
+cập nhật
+cập rà cập rập
+cất
+cất binh
+cất bước
+cất cánh
+cất chức
+cất công
+cất đám
+cất giấu
+cất giữ
+cất lẻn
+cất mả
+cất mộ
+cất nhắc
+cất quân
+cất tiếng
+cất trữ
+cất vó
+cật
+cật lực
+cật ruột
+cật sức
+cật vấn
+câu
+câu cấu
+câu chấp
+câu chuyện
+câu cú
+câu dầm
+câu đầu
+câu đố
+câu đối
+câu kéo
+câu kẹo
+câu kệ
+câu kết
+câu khách
+câu lạc bộ
+câu lệnh
+câu liêm
+câu lưu
+câu nệ
+câu nhạc
+câu rút
+câu thơ
+câu thúc
+cầu
+cầu an
+cầu ao
+cầu bơ cầu bất
+cầu cảng
+cầu cạnh
+cầu chì
+cầu chúc
+cầu chui
+cầu cống
+cầu cúng
+cầu cứu
+cầu dao
+cầu duyên
+cầu đảo
+cầu được ước thấy
+cầu đường
+cầu gai
+cầu hàng không
+cầu hiền
+cầu hoà
+cầu hôn
+cầu hồn
+cầu khẩn
+cầu khỉ
+cầu khiến
+cầu khuẩn
+cầu kì
+cầu kiến
+cầu kinh
+cầu là
+cầu lăn
+cầu lông
+cầu máng
+cầu may
+cầu mắt
+cầu mây
+cầu mong
+cầu môn
+cầu nối
+cầu nguyện
+cầu noi
+cầu phao
+cầu phong
+cầu phúc
+cầu quay
+cầu siêu
+cầu tài
+cầu tàu
+cầu thang
+cầu thang cuốn
+cầu thang máy
+cầu thang bằng
+cầu thân
+cầu thị
+cầu thủ
+cầu tiêu
+cầu toàn
+cầu toàn trách bị
+cầu treo
+cầu trục
+cầu truyền hình
+cầu trường
+cầu trượt
+cầu tự
+cầu vai
+cầu viện
+cầu vồng
+cầu vượt
+cầu xin
+cẩu
+cẩu hợp
+cẩu thả
+cẩu trệ
+cấu
+cấu chí
+cấu hình
+cấu kết
+cấu kiện
+cấu tạo
+cấu thành
+cấu trúc
+cấu tứ
+cấu véo
+cấu xé
+cậu
+cậu ấm
+cây
+cây ăn quả
+cây ăn trái
+cây bóng mát
+cây bông
+cây bụi
+cây bút
+cây cảnh
+cây cao bóng cả
+cây cỏ
+cây cọ
+cây cổ thụ
+cây cối
+cây công nghiệp
+cây đa cây đề
+cây gỗ
+cây hoa màu
+cây lau nhà
+cây lấy dầu
+cây lâu năm
+cây leo
+cây lương thực
+cây mầm
+cây mộc
+cây muốn lặng gió chẳng đừng
+cây ngay không sợ chết đứng
+cây nguồn mật
+cây nhà lá vườn
+cây nông nghiệp
+cây nước
+cây phủ đất
+cây quỳnh cành dao
+cây số
+cây thảo
+cây thân cỏ
+cây thân gỗ
+cây thân thảo
+cây thế
+cây thuốc
+cây trồng
+cây viết
+cây xanh
+cây xăng
+cầy
+cầy bông lau
+cầy cục
+cầy giông
+cầy hương
+cầy móc cua
+cầy vòi
+cấy
+cấy cày
+cấy cưỡng
+cấy ghép
+cấy hái
+cấy mô
+cậy
+cậy cục
