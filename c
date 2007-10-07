@@ -4553,3 +4553,297 @@ cụt hứng
 cụt lủn
 cụt ngủn
 cụt thun lủn
+cư dân
+cư ngụ
+cư sĩ
+cư tang
+cư trú
+cư trú chính trị
+cư xá
+cư xử
+cừ
+cừ khôi
+cử
+cử ai
+cử binh
+củ chỉ
+cử động
+cử hành
+cử nghiệp
+cử nhân
+cử sự
+cử toạ
+cử tuyển
+cử tử
+cữ
+cứ
+cứ cho là
+cứ điểm
+cứ liệu
+cứ việc
+cự
+cự li
+cự ly
+cự mã
+cự nự
+cự phách
+cự phú
+cự tuyệt
+cưa
+cưa đứt đục suốt
+cưa sừng làm nghé
+cưa xẻ
+cửa
+cửa ải
+cửa bể
+cửa biển
+cửa Bồ đề
+của bụt
+cửa bức bàn
+cửa chớp
+cửa công
+cửa cuốn
+cửa già
+cửa giả
+cửa hàng
+cửa hàng trưởng
+cửa hiệu
+cửa khẩu
+cửa không
+cửa Khổng
+cửa Khổng sân Trinh
+cửa kính
+cửa lá sách
+cửa mạch
+cửa mái
+cửa miệng
+cửa mình
+cửa mở
+cửa nẻo
+cửa ngõ
+cửa nhà
+cửa ô
+cửa Phật
+cửa quan
+cửa quyền
+cửa rả
+cửa sổ
+cửa sông
+cửa tay
+cửa thiền
+cửa tò vò
+cửa trời
+cửa từ bi
+cửa tử
+cửa van
+cửa xếp
+cứa
+cứa cổ
+cựa
+cựa cậy
+cựa quậy
+cức bì
+cực
+cực chẳng đã
+cực đại
+cực điểm
+cực đoan
+cực độ
+cực hạn
+cực hình
+cực hữu
+cực khổ
+cực kì
+cực kỳ
+cực lạc
+cực lực
+cực nhọc
+cực nhục
+cực quang
+cực tả
+cực thịnh
+cực tiểu
+cực trị
+cực từ
+cửi
+cưng
+cưng chiều
+cưng cứng
+cứng
+cứng cáp
+cứng cát
+cứng cỏi
+cứng còng
+cứng cổ
+cứng cựa
+cứng đầu
+cứng đầu cứng cổ
+cứng đờ
+cứng họng
+cứng lưỡi
+cứng miệng
+cứng ngắc
+cứng nhắc
+cứng quành
+cứng quèo
+cứng rắn
+cước
+cước chú
+cước khí
+cước phí
+cước vận
+cược
+cười
+cười chê
+cười cợt
+cười duyên
+cười gằn
+cười góp
+cười khà
+cười khẩy
+cười khì
+cười mát
+cười miếng chi
+cười mũi
+cười nắc nẻ
+cười ngất
+cười nhạt
+cười như nắc nẻ
+cười nịnh
+cười nụ
+cười ồ
+cười phá
+cười ra nước mắt
+cười rộ
+cười ruồi
+cười sặc
+cười sằng sặc
+cười tình
+cười trừ
+cười tủm
+cười vỡ bụng
+cười xoà
+cưỡi
+cưỡi cổ
+cưởi đầu cưỡi cổ
+cưỡi hổ
+cưỡi ngựa xem hoa
+cưỡi trên lưng cọp
+cưỡi trên lưng hổ
+cưới
+cưới chạy
+cưới chạy tang
+cưới cheo
+cưới hỏi
+cưới xin
+cườm
+cương
+cương cường
+cương giới
+cương lãnh
+cương lĩnh
+cương mô
+cương ngạnh
+cương nghị
+cương quyết
+cương thổ
+cương thường
+cương toả
+cương trực
+cương vị
+cương vực
+cường
+cường bạo
+cường dương
+cường đạo
+cường địch
+cường điệu
+cường độ
+cường độ lao động
+cường giáp
+cường hào
+cường kích
+cường lực
+cường mạnh
+cường quốc
+cường quyền
+cường suất
+cường tập
+cường thần
+cường thịnh
+cường toan
+cường tráng
+cưỡng
+cưỡng bách
+cưỡng bức
+cưỡng chế
+cưỡng dâm
+cưỡng đoạt
+cưỡng ép
+cưỡng hiếp
+cưỡng hôn
+cướp
+cướp biển
+cướp bóc
+cướp cò
+cướp đoạt
+cướp giật
+cứt
+cứt đái
+cứt gián
+cứt ngựa
+cứt sắt
+cứt su
+cứt trâu
+cưu mang
+cừu
+cừu địch
+cừu hận
+cừu thị
+cừu thù
+cửu
+cửu chương
+cửu lí hương
+cửu ngũ
+cửu nguyên
+cửu phẩm
+cửu trùng
+cửu tuyền
+cửu vạn
+cữu
+cứu
+cứu cánh
+cứu chuộc
+cứu chữa
+cứu độ
+cứu giúp
+cứu hoả
+cứu hộ
+cứu mạng
+cứu nhân độ thế
+cứu quốc
+cứu rỗi
+cứu sinh
+cứu tế
+cứu thế
+cứu thương
+cứu tinh
+cứu trợ
+cứu ứng
+cứu vãn
+cứu viện
+cứu vớt
+cứu xét
+cựu
+cựu binh
+cựu chiến binh
+cựu giao
+cựu hiềm
+cựu học
+cựu thần
+cựu trào
+cựu triều
+cựu truyền
+Cựu Ước
+CY
+cybernetic
