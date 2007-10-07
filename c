@@ -2747,3 +2747,615 @@ chợp
 chợp chờn
 chớt nhả
 chợt
+chrom
+chu
+chu cấp
+chu cha
+chu chuyển
+chu du
+chu đáo
+chu kì
+chu kỳ
+chu sa
+chu tất
+chu trình
+chu tuyền
+chu vi
+chủ
+chủ âm
+chủ bài
+chủ biên
+chủ bút
+chủ chiến
+chủ chốt
+chủ chứa
+chủ công
+chủ đạo
+chủ đề
+chủ đích
+chủ điểm
+chủ điền
+chủ định
+chủ động
+chủ hoà
+chủ hộ
+chủ hôn
+chủ khách
+chủ khảo
+chủ kho
+chủ kiến
+chủ lực
+chủ lực quân
+chủ mưu
+chủ não
+chủ nghĩa
+chủ nghĩa anh hùng
+chủ nghĩa ấn tượng
+chủ nghĩa bá quyền
+chủ nghĩa bành trướng
+chủ nghĩa bảo thủ
+chủ nghĩa biệt phái
+chủ nghĩa biểu hiện
+chủ nghĩa bình quân
+chủ nghĩa bôn sê vích
+chủ nghĩa cá nhân
+chủ nghĩa cải lương
+chủ nghĩa cấp tiến
+chủ nghĩa cấu trúc
+chủ nghĩa chủ quan
+chủ nghĩa chủng tộc
+chủ nghĩa cổ điển
+chủ nghĩa công đoàn
+chủ nghĩa công đoàn vô chính phủ
+chủ nghĩa cộng sản
+chủ nghĩa công sản khoa học
+chủ nghĩa cộng sản trại lính
+chủ nghĩa cơ hội
+chủ nghĩa cơ hội hữu khuynh
+chủ nghĩa cơ hội tả khuynh
+chủ nghĩa dada
+chủ nghĩa dân tộc
+chủ nghĩa dân tuý
+chủ nghĩa duy cảm
+chủ nghĩa duy lí
+chủ nghĩa duy linh
+chủ nghĩa duy lý
+chủ nghĩa duy mĩ
+chủ nghĩa duy mỹ
+chủ nghĩa duy tâm
+chủ nghĩa duy tâm chủ quan
+chủ nghĩa duy tâm khác quan
+chủ nghĩa duy vận
+chủ nghĩa duy vật biện chứng
+chủ nghĩa duy vật lịch sử
+chủ nghĩa duy vật máy móc
+chủ nghĩa duy ý chí
+chủ nghĩa đađa
+chủ nghĩa đế quốc
+chủ nghĩa giáo điều
+chủ nghĩa hành vi
+chủ nghĩa hiện đại
+chủ nghĩa hiện sinh
+chủ nghĩa hiện thực
+chủ nghĩa hiện thực phê phán
+chủ nghĩa hiện tượng
+chủ nghĩa hình thức
+chủ nghĩa hoài nghi
+chủ nghĩa hư vô
+chủ nghĩa khách quan
+chủ nghĩa khắc kỉ
+chủ nghĩa kinh nghiệm
+chủ nghĩa kinh viện
+chủ nghĩa lãng mạn
+chủ nghĩa lập thể
+chủ nghĩa Marx
+chủ nghĩa Marx-Lenin
+chủ nghĩa nhân bản
+chủ nghĩa nhân văn
+chủ nghĩa nhân vị
+chủ nghĩa quan liêu
+chủ nghĩa quân phiệt
+chủ nghĩa quốc gia
+chủ nghĩa quốc tế
+chủ nghĩa quốc xã
+chủ nghĩa siêu thực
+chủ nghĩa sinh tồn
+chủ nghĩa Sion
+chủ nghĩa sô vanh
+chủ nghĩa sô vanh nước lớn
+chủ nghĩa tả chân
+chủ nghĩa tâm dân
+chủ nghĩa thần bí
+chủ nghĩa thế giới
+chủ nghĩa thuần tuý
+chủ nghĩa thực chứng
+chủ nghĩa thực chứng mới
+chủ nghĩa thực dân
+chủ nghĩa thực dân mới
+chủ nghĩa thực dụng
+chủ nghĩa tình cảm
+chủ nghĩa trực giác
+chủ nghĩa tư bản
+chủ nghĩa tự do
+chủ nghĩa tự nhiên
+chủ nghĩa tương đối
+chủ nghĩa tượng trưng
+chủ nghĩa vị kỉ
+chủ nghĩa vị kỷ
+chủ nghĩa vị lai
+chủ nghĩa vị lợi
+chủ nghĩa vị tha
+chủ nghĩa vô chính phủ
+chủ nghĩa xã hội dân chủ
+chủ nghĩa xã hội không tưởng
+chủ nghĩa xét lại
+chủ nghĩa yêu nước
+chủ ngữ
+chủ nhân
+chủ nhân ông
+chủ nhật
+chủ nhiệm
+chủ nô
+chủ quan
+chủ quản
+chủ quyền
+chủ soái
+chủ sở hữu
+chủ suý
+chủ sự
+chủ tài khoản
+chủ tâm
+chủ tế
+chủ thầu
+chủ thể
+chủ tịch
+chủ tịch đoàn
+chủ toạ
+chủ trì
+chủ trị
+chủ trương
+chủ từ
+chủ tướng
+chủ xị
+chủ ý
+chủ yếu
+chú
+chú âm
+chú dẫn
+chủ mày
+chú mình
+chú mục
+chú rể
+chú thích
+chú trọng
+chua
+chua cay
+chua chát
+chua chua
+chua hoá
+chua lè
+chua lét
+chua loen loét
+chua loét
+chua lòm
+chua me
+chua me đất
+chua ngoa
+chua ngoét
+chua ngọt
+chua xót
+chùa
+chùa chiền
+chùa đất phật vàng
+chùa nát bụt vàng
+chùa rách bụt vàng
+chúa
+chúa công
+chúa cứu thế
+chúa đất
+chúa nhật
+chúa sơn lâm
+chúa tể
+chúa thượng
+chúa trời
+chuẩn
+chuẩn bị
+chuẩn chi
+chuẩn cứ
+chuẩn đích
+chuẩn độ
+chuẩn gốc
+chuẩn hoá
+chuẩn mực
+chuẩn mực hoá
+chuẩn tắc
+chuẩn tấu
+chuẩn thứ
+chuẩn tướng
+chuẩn uý
+chuẩn xác
+chuẩn y
+chúc
+chúc hạ
+chúc mào
+chúc mừng
+chúc phúc
+chúc thọ
+chúc thư
+chúc tụng
+chúc từ
+chục
+chuệch choạc
+chuếnh choáng
+chuếnh choạng
+chui
+chui cha
+chui lủi
+chui luồn
+chui nhủi
+chui rúc
+chùi
+chúi
+chúi đầu
+chúi đầu chúi mũi
+chúi nhủi
+chum
+chum chúm
+chum hum
+chùm
+chùm gửi
+chùm nhum
+chùm ruột
+chũm
+chũm choẹ
+chúm
+chúm chim
+chụm
+chun
+chun chủn
+chùn
+chùn chùn
+chùn chũn
+chùn chụt
+chủn
+chũn chĩn
+chung
+chung chạ
+chung chăn gối
+chung chiêng
+chung chung
+chung cục
+chung cuộc
+chung cư
+chung đỉnh
+chung đúc
+chung đụng
+chung kết
+chung khảo
+chung lưng
+chung lưng đấu cật
+chung quanh
+chung qui
+chung qui lại
+chung quy
+chung quy lại
+chung sống hoà bình
+chung thẩm
+chung thân
+chung thuỷ
+chung tình
+chùng
+chùng chiềng
+chùng chình
+chủng
+chủng chẳng
+chủng đậu
+chủng loại
+chủng sinh
+chủng tộc
+chủng viện
+chúng
+chúng bạn
+chúng sinh
+chúng ta
+chúng tao
+chúng tôi
+chuốc
+chuộc
+chuôi
+chuồi
+chuỗi
+chuối
+chuối ba lùn
+chuối bụt
+chuối chát
+chuối cơm
+chuối hoa
+chuối hột
+chuối lá
+chuối lùn
+chuối lữa
+chuối mắn
+chuối mật
+chuối mít
+chuối mốc
+chuối ngự
+chuối rẻ quạt
+chuối sợi
+chuối sứ
+chuối tây
+chuối thanh tiêu
+chuối tiêu
+chuối vả
+chuội
+chuôm
+chuồn
+chuồn chuồn
+chuồn chuồn đạp nước
+chuồn chuồn kim
+chuông
+chuồng
+chuồng chồ
+chuồng tiêu
+chuồng trại
+chuồng xí
+chuộng
+chuốt
+chuột
+chuột bạch
+chuột chạy cùng sào
+chuột chù
+chuột chũi
+chuột cống
+chuột đất
+chuột đồng
+chuột khuy
+chuột lang
+chuột lắt
+chuột nhắt
+chuột quang
+chuột rút
+chuột sa chĩnh gạo
+chuột tam thể
+chuột túi
+chụp
+chụp đèn
+chụp ếch
+chụp giật
+chụp giựt
+chụp mũ
+chút
+chút chít
+chút đỉnh
+chút ít
+chút phận
+chút xíu
+chụt
+chụt chịt
+chuỳ
+chuyên
+chuyên án
+chuyên ban
+chuyên biệt
+chuyên canh
+chuyên cần
+chuyên chế
+chuyên chính
+chuyên chính vô sản
+chuyên chở
+chuyên chú
+chuyên cơ
+chuyên doanh
+chuyên dùng
+chuyên dụng
+chuyên đề
+chuyên gia
+chuyên hoá
+chuyên khảo
+chuyên khoa
+chuyên luận
+chuyên môn
+chuyên môn hoá
+chuyên mục
+chuyên ngành
+chuyên nghiệp
+chuyên quản
+chuyên quyền
+chuyên san
+chuyên sâu
+chuyên sử
+chuyên tải
+chuyên tâm
+chuyên trách
+chuyên trang
+chuyên trị
+chuyên tu
+chuyên viên
+chuyền
+chuyển
+chuyển bại thành thắng
+chuyển biên
+chuyển biến
+chuyển bụng
+chuyển chú
+chuyển cư
+chuyển dạ
+chuyển di
+chuyển dịch
+chuyển dời
+chuyển đạt
+chuyển đổi
+chuyển động
+chuyển động đều
+chuyển động quay
+chuyển động tịnh tiến
+chuyển giao
+chuyển hoá
+chuyển hướng
+chuyển khoản
+chuyển lay
+chuyển loại
+chuyển mình
+chuyển nghĩa
+chuyển ngữ
+chuyển nhượng
+chuyển phát
+chuyển tải
+chuyển thể
+chuyển tiền
+chuyển tiếp
+chuyển tự
+chuyển vần
+chuyển vận
+chuyển vế
+chuyển vị
+chuyến
+chuyện
+chuyện văn
+chư
+chư hầu
+chư ni
+chư tăng
+chư tăng ni
+chư tướng
+chư vị
+chừ
+chừ bự
+chữ
+chữ bát
+chữ cái
+chữ chi
+chữ điền
+chữ gothic
+chữ gotic
+chữ kí
+chữ ký
+chữ môn
+chữ nghĩa
+chữ nhân
+chữ nho
+chữ nổi
+chữ Nôm
+chữ quốc ngữ
+chữ số
+chữ số A Rập
+chữ số La Mã
+chữ thập
+chữ thập đỏ
+chữ thập ngoặc
+chữ thầy trả thầy
+chữ tòng
+chữ viết
+chứ
+chứ lại
+chứ lị
+chưa
+chưa biết chừng
+chưa chừng
+chưa đỗ ông nghè đã đe hàng tổng
+chưa học bò đã lo học chạy
+chưa ráo máu đầu
+chừa
+chửa
+chửa buộm
+chửa hoang
+chửa trâu
+chửa trứng
+chữa
+chữa cháy
+chữa chạy
+chữa thẹn
+chữa trị
+chứa
+chứa chan
+chứa chấp
+chứa chất
+chứa đựng
+chứa thổ đổ hồ
+chức
+chức danh
+chức dịch
+chức năng
+chức nghiệp
+Chức Nữ
+chức phận
+chức quyền
+chức sắc
+chức sự
+chức trách
+chức trọng quyền cao
+chức tước
+chức vị
+chức việc
+chức vụ
+chực
+chực chờ
+chực tiết
+chửi
+chửi bới
+chửi chó mắng mèo
+chửi đổng
+chửi mắng
+chửi rủa
+chưn
+chưng
+chưng bày
+chưng cất
+chưng diện
+chưng hửng
+chừng
+chừng độ
+chừng đỗi
+chừng mực
+chừng như
+chững
+chững chạc
+chững chàng
+chứng
+chứng bệnh
+chứng chỉ
+chứng cớ
+chứng cứ
+chứng dẫn
+chứng giải
+chứng giám
+chứng khoán
+chứng kiến
+chứng lí
+chứng lý
+chứng minh
+chứng minh thư
+chứng nào tật ấy
+chứng nghiệm
+chứng nhân
+chứng nhận
+chứng quả
+chứng tá
+chứng thư
+chứng thực
+chứng thương
+chứng tích
+chứng tỏ
+chứng tri
+chứng từ
+chựng
+chước
+chườm
+chương
+chương chướng
+chương hồi
+chương mục
+chương trình
+chương trình nghị sự
+chường
+chưởng
+chưởng bạ
+chưởng khế
+chưởng lý
+chướng
+chướng khi
+chướng luỹ
+chướng ngại
+chướng ngại vật
+chướng tai gai mắt
+chượp
