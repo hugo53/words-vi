@@ -3359,3 +3359,884 @@ chướng ngại
 chướng ngại vật
 chướng tai gai mắt
 chượp
+CIF
+Cl
+cla-ri-nét
+CLB
+clin-ke
+clinke
+clinker
+clo
+clo-rát
+clo-rua
+clorat
+clorua
+cm
+CM
+CMT
+CN
+CNTB
+CNXH
+co
+Co
+co-ban
+co bóp
+co cụm
+co dãn
+co giãn
+co giật
+co kéo
+co quắp
+co ro
+co rúm
+co thủ
+co vòi
+cò
+cò bay thẳng cánh
+cò bợ
+cò con
+cò cử
+cò cưa
+cò hương
+cò kè
+cò lả
+cò lửa
+cò mồi
+cò quay
+cò rò
+cỏ
+cỏ bạc đầu
+cỏ cây
+cỏ gà
+cỏ gấu
+cỏ gianh
+cỏ lác
+cỏ lồng vực
+cỏ may
+cỏ mần trầu
+cỏ mật
+cỏ năn
+cỏ rả
+cỏ roi ngựa
+cỏ sâu róm
+cỏ sữa
+cỏ tranh
+cỏ vê
+cỏ xước
+có
+có ăn
+có bát ăn bát để
+có bề gì
+có bề nào
+có bột mới gột nên hồ
+có chăng
+có chí thì nên
+có chửa
+có của
+có da có thịt
+có dễ
+có đi có lại
+có điều
+có giá
+có hạn
+có hạng
+có hậu
+có hiếu
+có học
+có ích
+có khi
+có lẽ
+có lẽ nào
+có lí
+có lí có lẽ
+có lớn mà chẳng có khôn
+có lý
+có lý có lẽ
+có mang
+có máu mặt
+có mặt
+có một không hai
+có mới nới cũ
+có nghĩa
+có nhân
+có nhẽ
+có nơi có chốn
+có sừng có mỏ
+có tật giật mình
+có thai
+có thể
+có tình
+có tuổi
+cọ
+cọ dầu
+cọ xát
+cobalt
+cóc
+cóc ca cóc cách
+cóc cách
+cóc cáy
+cóc gặm
+cóc khô
+cóc nhảy
+cóc tía
+cọc
+cọc cà cọc cạch
+cọc cạch
+cọc đi tìm trâu
+coca
+cocain
+cocktail
+coctison
+codein
+coi
+coi bộ
+coi chừng
+coi khinh
+coi mắt
+coi mòi
+coi ngó
+coi người bằng nửa con mắt
+coi nhẹ
+coi rẻ
+coi sóc
+coi thường
+coi trọng
+coi trời bằng vung
+coi xét
+còi
+còi cọc
+còi xương
+cõi
+cõi âm
+cõi bờ
+cõi dương
+cõi đời
+cõi lòng
+cõi tiên
+cõi trần
+cõi tục
+cói
+cologa
+cologarit
+cologarithm
+colophan
+com lê
+com-măng
+com-măng-ca
+com-măng-đô
+com-pa
+còm
+còm cõi
+còm cọm
+còm nhom
+còm nhỏm
+còm rỏm
+cóm róm
+commando
+commăng
+commăng-ca
+compa
+computer
+con
+con bạc
+con bài
+con bé
+con bế con bồng
+con bệnh
+con bồng con mang
+con buôn
+con cà con kê
+con cả
+con cái
+con chạch
+con cháu
+con chạy
+con chấy cắn đôi
+con chiên
+con chiển ghẻ
+con chú con bác
+con cò
+con con
+con cón
+con cúi
+con dại cái mang
+con dao hai lưỡi
+con dấu
+con dì con già
+con dòng
+con đầu cháu sớm
+con đẻ
+con đen
+con đỏ
+con đòi
+con đội
+con em
+con gái
+con gái con đứa
+con ghẻ
+con giai
+con giáp
+con giống
+con giun xéo lắm cũng quằn
+con hát
+con heo
+con hoang
+con lắc
+con lăn
+con mẻ
+con mẹ
+con mọn
+con một
+con nghiện
+con ngoài giá thú
+con ngươi
+con người
+con nhà
+con nhà lành
+con nhà lính tính nhà quan
+con nhỏ
+con nít
+con nợ
+con nụ
+con nuôi
+con nước
+con ong cái kiến
+con ông cháu cha
+con phe
+con quay
+con rạ
+con ranh
+con ranh con lộn
+con riêng
+con rối
+con rơi
+con ruột
+con sâu bỏ rầu nồi canh
+con sâu làm rầu nồi canh
+con sen
+con so
+con số
+con tạo
+con thoi
+con thơ
+con thứ
+con tin
+con tính
+con toán
+con trai
+con trai con đứa
+con trẻ
+con trỏ
+con trốt
+con xỏ
+còn
+còn khuya
+còn mệt
+còn mồ ma
+còn nước còn tát
+còn phải nói
+còn xơi
+cỏn con
+cọn
+concerto
+confetti
+cong
+cong cóc
+cong cớn
+cong queo
+cong tớn
+cong vắt
+cong veo
+cong vút
+còng
+còng cọc
+còng queo
+còng quèo
+cõng
+cõng rắn cắn gà nhà
+cóng
+cọng
+consol
+consortium
+container
+contrabass
+conxecto
+conxoocxiom
+coóc xê
+cóp
+cóp nhặt
+cọp
+corpus
+cortison
+cos
+cosin
+cot
+cót
+cót ca cót két
+cọt cà cọt kẹt
+cót két
+cọt kẹt
+cota
+cotang
+cotton
+coulomb
+cô
+cô bác
+cô bần
+cô-ca
+cô-ca-in
+cô chiêu
+cô dâu
+cô đầu
+cô đọng
+cô độc
+cô đồng
+cô đỡ
+cô đơn
+cô đúc
+cô giáo
+cô hầu
+cô hồn
+cô lập
+cô liêu
+cô miên
+cô mình
+cô mụ
+cô nhi
+cô nhi quả phụ
+cô nhi viện
+cô nương
+cô phòng
+cô quả
+cô quạnh
+cô phụ
+cô-ta
+cô thế
+cô thôn
+cô tịch
+cô trung
+cồ
+cồ cộ
+cổ
+cổ bồng
+cổ cày vai bừa
+cổ chày
+cổ chân
+cổ cồn
+cổ cứng
+cổ đại
+cổ địa lí
+cổ địa lý
+cổ điển
+cổ đông
+cổ động
+cổ động viên
+cổ giả
+cổ họng
+cổ hủ
+cổ hũ
+cổ kim
+cổ kính
+cổ lai
+cổ lai hi
+cổ lai hy
+cổ lệ
+cổ lỗ
+cổ lỗ sĩ
+cổ lục
+cổ ngữ
+cổ nhân
+cổ phần
+cổ phần hoá
+cổ phiếu
+cổ phong
+cổ quái
+cổ sinh
+cổ sinh vật
+cổ sinh vật học
+cổ sơ
+cổ suý
+cổ tay
+cổ thi
+cổ thụ
+cổ tích
+cổ tiền học
+cổ truyền
+cổ trướng
+cổ tục
+cổ tự
+cổ tự học
+cổ tức
+cổ vật
+cổ võ
+cổ vũ
+cổ xuý
+cổ xưa
+cỗ
+cố áo
+cỗ bàn
+cỗ ván
+cố
+cố chấp
+cố chết
+cố chí
+cố chủ
+cố công
+cố cùng
+cố cư
+cố cựu
+cố đạo
+cố đấm ăn xôi
+cố định
+cố đô
+cố gắng
+cố hương
+cố hữu
+cố kết
+cố kỉnh
+cố lão
+cố mệnh
+cố nhân
+cố nhiên
+cố nông
+cố quốc
+cố sát
+cố sống cố chết
+cố tâm
+cố tật
+cố thây
+cố thổ
+cố thủ
+cố tình
+cố tri
+cố từ
+cố vấn
+cố ý
+cộ
+cốc
+cốc cốc
+cốc đế
+cốc láo
+cốc mò cò ăn
+cốc vại
+cốc vũ
+cộc
+cộc cằn
+cộc lốc
+côi
+côi cút
+cổi
+cỗi
+cỗi cằn
+cỗi nguồn
+cỗi rễ
+cối
+cối cần
+cối chày đạp
+cối nước
+cối xay
+cối xay gió
+cội
+cội nguồn
+cội rễ
+côm cốp
+cồm cộm
+cốm
+cộm
+côn
+côn đồ
+côn quang
+côn hươn
+côn quyền
+côn trùng
+côn trùng học
+cồn
+cồn cào
+cồn cát duyên hải
+cổn bào
+cốn
+cộn
+công
+công an
+công an viên
+công ăn việc làm
+công báo
+công bằng
+công binh
+công binh xưởng
+công bình
+công bộc
+công bội
+công cán
+công chiếu
+công chính
+công chúa
+công chúng
+công chuyện
+công chức
+công chứng
+công chứng viên
+công cốc
+công cộng
+công cụ
+công cua
+công cuộc
+công cử
+công dã tràng
+công danh
+công dân
+công diễn
+công du
+công dung ngôn hạnh
+công dụng
+công điểm
+công điền
+công điện
+công đoàn
+công đoàn phí
+công đoàn vàng
+công đoạn
+công đức
+công đường
+Công giáo
+công hàm
+công hãm
+công hầu
+công hiệu
+công hội
+công huân
+công hữu
+công hữu hoá
+công ích
+công kênh
+công khai
+công khanh
+công khố
+công khu
+công kích
+công kiên
+công kiên chiến
+công lao
+công lập
+công lệ
+công lên việc xuống
+công lênh
+công lệnh
+công lí
+công lịch
+công luận
+công lực
+công lương
+công lý
+công mẫu
+công minh
+công môn
+công năng
+công nghệ
+công nghệ cao
+công nghệ di truyền
+công nghệ học
+công nghệ phẩm
+công nghệ phần mềm
+công nghệ sạch
+công nghệ sinh học
+công nghệ thông tin
+công nghệ tri thức
+công nghệ vi sinh vật
+công nghệ xanh
+công nghĩa
+công nghiệp
+công nghiệp hoá
+công nghiệp nặng
+công nghiệp nhẹ
+công nguyên
+công nha
+công nhân
+công nhân quí tộc
+công nhân quý tộc
+công nhân viên
+công nhận
+công nhật
+công nhiên
+công nông
+công nông binh
+công nông lâm nghiệp
+công nông nghiệp
+công nợ
+công nương
+công ơn
+công phá
+công pháp
+công pháp quốc tế
+công phạt
+công phẫn
+công phiếu
+công phu
+công quả
+công quĩ
+công quốc
+công quỹ
+công quyền
+công sá
+công sai
+công sản
+công sở
+công suất
+công sứ
+công sứ đặc mệnh toàn quyền
+công sứ quán
+công sự
+công sức
+công sưu
+công tác
+công tác phí
+công tắc
+công tâm
+công-ten-nơ
+công thải
+công thành danh toại
+công thần
+công thổ
+công thủ
+công thự
+công thức
+công thức hoá học
+công thương
+công thương gia
+công thương nghiệp
+công ti
+công ti con
+công ti cổ phẩn
+công ti mẹ
+công ti trách nhiệm hữu hạn
+công tích
+công toi
+công tố
+công tố uỷ viên
+công tố viên
+công tơ
+công tơ tổng
+công trái
+công trạng
+công trình
+công trình phụ
+công trình sư
+công trường
+công trường thủ công
+công tư hợp doanh
+công tư lưỡng lợi
+công tử
+công tử Bạc Liêu
+công tử bột
+công tử vỏ
+công tước
+công ty
+công ty con
+công ty cổ phần
+công ty mẹ
+công ty trách nhiệm hữu hạn
+công ước
+công văn
+công vận
+công việc
+công viên
+công viên nước
+công vụ
+công xã
+công xã nhân dân
+công xã nông thôn
+công xá
+công xưởng
+cồng
+cồng chiêng
+cồng kềnh
+cồng tía
+cổng
+cổng chào
+cổng rả
+cống
+cống hiến
+cống lễ
+cống luồn
+cống nạp
+cống nộp
+cống phẩm
+cống rãnh
+cống sĩ
+cống sinh
+cống vật
+cộng
+cộng cư
+cộng đồng
+cộng đồng tộc người
+cộng hoà
+cộng hưởng
+cộng sản
+cộng sản chủ nghĩa
+cộng sản nguyên thuỷ
+cộng sinh
+cộng sự
+cộng tác
+cộng tác viên
+côngtenơ
+côngxectô
+côngxon
+cốp
+cốp pha
+côsin
+cốt
+cốt cách
+cốt cán
+cốt hoá
+cốt khí
+cốt khí muồng
+cốt liệu
+cốt lõi
+cốt mạc
+cốt nhục
+cốt nhục tử sinh
+cốt nhục tương tàn
+cốt sao
+cốt truyện
+cốt tuỷ
+cốt tử
+cốt yếu
+cột
+cột dọc
+cột hiệu
+cột số
+cột sống
+cột thu lôi
+cột trụ
+cột xăng
+côta
+côtang
+côtông
+cơ
+cơ bản
+cơ bắp
+cơ bẩm
+cơ cầu
+cơ cấu
+cơ chế
+cơ chế thị trường
+cơ chỉ
+cơ chừng
+cơ chừng này
+cơ chừng này thì
+cơ cực
+cơ duyên
+cơ đê
+cơ địa
+cơ điện
+cơ đồ
+Cơ Đốc
+Cơ Đốc giáo
+cơ động
+cơ giới
+cơ giới hoá
+cơ hàn
+cơ hoành
+cơ học
+cơ hồ
+cơ hội
+cơ hội chủ nghĩa
+cơ hữu
+cơ khí
+cơ khí hoá
+cơ khí học
+cơ khổ
+cơ lỡ
+cơ mà
+cơ man
+cơ may
+cơ mật
+cơ mầu
+cơ mưu
+cơ năng
+cơ nghiệp
+cơ ngơi
+cơ ngũ
+cơ nhỡ
+cơ quan
+cơ quan chuyên môn
+cơ quan chức năng
+cơ quan dân cử
+cơ quan hành chính
+cơ quan ngôn luận
+cơ quan quyền lực nhà nước
+cơ số
+cơ sở
+cơ sở dữ liệu
+cơ sở hạ tầng
+cơ sở ngữ liệu
+cơ sự
+cơ thắt
+cơ thể
+cơ thể học
+cơ thiền
+cơ trí
+cơ trơn
+cơ trưởng
+cơ vòng
+cơ xưởng
+cơ yếu
+cờ
+cờ bạc
+cờ bỏi
+cờ chân chó
+cờ chó
+cờ đến tay ai người ấy phất
+cờ đuôi nheo
+cờ gánh
+cờ lê
+cờ lông công
+cờ mao
+cờ người
+cờ quạt
+cờ trắng
+cờ tướng
+cờ vây
+cờ vua
+cờ xí
+cỡ
+cớ
+cớ sao
+cơi
+cơi nới
+cời
+cởi
+cởi mở
+cỡi
+cơm
+cơm áo
+cơm áo gạo tiền
+cơm bình dân
+cơm bụi
+cơm bữa
+cơm bưng nước rót
+cơm cháo
+cơm chiên
+cơm chim
+cơm đen
+cơm đĩa
+cơm đùm cơm nắm
+cơm gạo
+cơm hàng cháo chợ
+cơm hộp
+cơm lam
+cơm niêu nước lọ
+cơm nước
+cơm rang
+cơm rượu
+cơm thấy cơm ô
+cơm thừa canh cặn
+cớm
+cơn
+cơn cớ
+cơn sốt
+cơn cỡn
+cợp
+cớt nhả
+cợt
+cợt nhả
