@@ -4240,3 +4240,316 @@ cợp
 cớt nhả
 cợt
 cợt nhả
+CP
+CPU
+Cr
+credit card
+crếp
+crom
+CS
+CSDL
+CT
+CTCP
+Cty
+cu
+Cu
+cu cậu
+cu cu
+cu cườm
+cu đất
+cu đơ
+cu gáy
+cu gầm chì
+cu gấm
+cu lì
+cu lít
+cu-lông
+co luồng
+cu ngói
+cu sen
+cu xanh
+cù
+cù bơ cù bất
+cù cưa
+cù là
+cù lao
+cù lần
+cù mì
+cù mộc
+cù nèo
+cù nghoéo
+cù nhằng
+cù nhây
+cù nhầy
+cù rù
+củ
+củ ấu
+củ bình vôi
+củ cải
+củ cải đường
+củ cái
+củ cẩm
+củ đao
+củ đậu
+củ khỉ
+củ mài
+củ mì
+củ mỉ
+củ mỉ cù mì
+củ mỡ
+củ não
+củ năn
+củ nâu
+củ rủ
+củ rủ cù rù
+củ soát
+củ từ
+cũ
+cũ càng
+cũ kĩ
+cũ kỹ
+cũ mèm
+cũ người mới ta
+cũ rích
+cú
+cú mèo
+cú pháp
+cú pháp học
+cú rũ
+cú vọ
+cụ
+cụ cựa
+cụ kị
+cụ kỵ
+cụ non
+cụ thể
+cụ thể hoá
+cua
+cua bấy
+cua bể
+cua biển
+cua dẽ
+cua đá
+cua đồng
+cua gạch
+cua nước
+cua óp
+cua rơ
+cua thịt
+của
+của ăn của để
+của cải
+của cải quốc dân
+của chìm
+của chìm của nổi
+của chồng công vợ
+của đáng tội
+của đau con xót
+của đi thay người
+của độc
+của ít lòng nhiều
+của một đồng công một nén
+của nả
+của người phúc ta
+của nổi
+của nợ
+của thiên trả địa
+cuaroa
+cúc
+cúc bấm
+cúc cu
+cúc cung
+cúc cung tận tuỵ
+cúc dục
+cúc hoa
+cúc tần
+cúc trắng
+cúc vạn thọ
+cúc vàng
+cục
+cục bộ
+cục cằn
+cục diện
+cục kịch
+cục mịch
+cục súc
+cục tác
+cục tính
+cục trưởng
+cui cút
+cùi
+cùi chỏ
+cùi cụi
+cùi dìa
+cùi kén
+cùi tay
+củi
+củi đóm
+củi đuốc
+củi lụt
+củi lửa
+củi rả
+cũi
+cúi
+culon
+culong
+cum
+cum cúp
+cùm
+cùm cụp
+cùm kẹp
+cúm
+cúm gà
+cúm gia cầm
+cúm núm
+cúm rúm
+cụm
+cụm cảng
+cụm tứ điểm
+cụm từ
+cun cút
+cùn
+cùn đời
+cùn đời mạt kiếp
+cùn cỡn
+cún
+cung
+cung bậc
+cung cách
+cung cấm
+cung cấp
+cung cầu
+cung cúc
+cung dưỡng
+cung đao
+cung điện
+cung đình
+cung độ
+cung đốn
+cung kéo
+cung khai
+cung kiếm
+cung kính
+cung nga
+cung nhân
+cung nữ
+cung phản xạ
+cung phi
+cung phụng
+cung quăng
+cung quế
+cung tần
+cung thánh
+cung thất
+cung thiếu nhi
+cung thương
+cung tiến
+cung tiêu
+cung trăng
+cung ứng
+cung văn
+cung văn hoá
+cung xưng
+cùng
+cùng bất đắc dĩ
+cùng cực
+cùng dân
+cùng đinh
+cùng đồ
+cùng đường
+cùng hội cùng thuyền
+cùng khổ
+cùng khốn
+cùng kì lí
+cùng kiệt
+cùng kỳ lý
+cùng quá hoá liều
+cùng quẫn
+cùng tận
+cùng tột
+cùng túng
+củng
+củng cố
+cũng
+cũng nên
+cũng quá tội
+cúng
+cúng bái
+cúng cáo
+cúng cấp
+cúng cơm
+cúng giỗ
+cúng lễ
+cúng quải
+cúng quảy
+cúng tế
+cúng tiến
+cúng vái
+cụng
+cụng đầu
+cụng li
+cuốc
+cuốc bàn
+cuốc bộ
+cuốc bướm
+cuốc chét
+cuốc chĩa
+cuốc chim
+cuộc
+cuộc chiến
+cuộc chơi
+cuộc đời
+cuộc gọi
+cuộc sống
+cuộc thế
+cuối
+cuối cùng
+cuội
+cuội kết
+cuỗm
+cuồn cuộn
+cuốn
+cuốn chiếu
+cuốn gói
+cuốn hút
+cuốn vó
+cuốn xéo
+cuộn
+cuộn sơ cấp
+cuộn thứ cấp
+cuông
+cuồng
+cuồng bạo
+cuồng chiến
+cuồng dại
+cuồng dâm
+cuồng điên
+cuồng loạn
+cuồng mộng
+cuồng nhiệt
+cuồng nộ
+cuồng phong
+cuồng sát
+cuồng si
+cuồng sĩ
+cuồng tặc
+cuồng tín
+cuồng tưởng
+cuồng vọng
+cuống
+cuống cà kê
+cuống cuồng
+cuống họng
+cuống quít
+cuống quýt
+cuộng
+cúp
+cúp cua
+cụp
+curoa
+cút
+cút kít
+cụt hứng
+cụt lủn
+cụt ngủn
+cụt thun lủn
