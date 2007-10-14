@@ -784,3 +784,306 @@ hết thảy
 hết vía
 hết ý
 hệt
+Hg
+hi-đrô
+hi-đrô-các-bon
+hi-đrô-clo-rua
+hi-đrô-xít
+hi-fi
+hi hi
+hi hút
+hi hữu
+hi sinh
+hi thiêm
+hi thiêm thảo
+hi vọng
+hì
+hì hà hì hục
+hì hì
+hì hục
+hì hụi
+hì hụp
+hỉ
+hỉ hả
+hỉ mũi chưa sạch
+hỉ tín
+hỉ xả
+hí
+hí ha hí hửng
+hí hoạ
+hí hoáy
+hí hởn
+hí húi
+hí hửng
+hí hước
+hí khúc
+hí kịch
+hí trường
+hí viện
+hia
+hích
+hịch
+hiđro
+hiđrocacbon
+hiđroclorua
+hiđroxit
+hiềm
+hiềm khích
+hiềm nghi
+hiềm oán
+hiềm thù
+hiểm
+hiểm ác
+hiểm địa
+hiểm độc
+hiểm hoạ
+hiểm hóc
+hiểm nghèo
+hiểm nguy
+hiểm sâu
+hiểm trở
+hiểm tượng
+hiểm yếu
+hiếm
+hiếm hoi
+hiếm muộn
+hiên
+hiên ngang
+hiền
+hiền dịu
+hiền đệ
+hiền điệt
+hiền đức
+hiền giả
+hiền hậu
+hiền hoà
+hiền huynh
+hiền hữu
+hiền khô
+hiền lành
+hiền lương
+hiền mẫu
+hiền minh
+hiền muội
+hiền nhân
+hiền nhân quân tử
+hiền sĩ
+hiền tài
+hiền thảo
+hiền thần
+hiền thê
+hiền thục
+hiền triết
+hiền từ
+hiển dương
+hiển đạt
+hiển khách
+hiển hiện
+hiển hoa
+hiển linh
+hiển minh
+hiển ngôn
+hiển nhiên
+hiển thánh
+hiển thị
+hiển vinh
+hiến
+hiến binh
+hiến chương
+hiến dâng
+hiến kế
+hiến pháp
+hiến phù
+hiến thân
+hiện
+hiện ảnh
+hiện chủ
+hiện diện
+hiện đại
+hiện đại hoá
+hiện giờ
+hiện hành
+hiện hình
+hiện hữu
+hiện kim
+hiện nay
+hiện sinh
+hiện tại
+hiện thân
+hiện thời
+hiện thực
+hiện thực khách quan
+hiện tình
+hiện trạng
+hiện trường
+hiện tượng
+hiện tượng học
+hiện tượng luận
+hiện vật
+hiêng hiếng
+hiếng
+hiếp
+hiếp bức
+hiếp chế
+hiếp dâm
+hiếp đáp
+hiếp tróc
+hhiệp
+hiệp biện
+hiệp định
+hiệp định khung
+hiệp định sơ bộ
+hiệp đoàn
+hiệp đồng
+hiệp hội
+hiệp khách
+hiệp lực
+hiệp nghị
+hiệp sĩ
+hiệp tá
+hiệp tác
+hiệp tác hoá
+hiệp thương
+hiệp ước
+hiệp vần
+hiệp vận
+hiểu
+hiểu biết
+hiểu dụ
+hiểu thị
+hiếu
+hiếu chiến
+hiếu chủ
+hiếu danh
+hiếu đễ
+hiếu động
+hiếu hạnh
+hiếu hỉ
+hiếu hoà
+hiếu học
+hiếu hỷ
+hiếu khách
+hiếu khí
+hiếu kì
+hiếu kỳ
+hiếu nghĩa
+hiếu sát
+hiếu sắc
+hiếu sinh
+hiếu sự
+hiếu thảo
+hiếu thắng
+hiếu thuận
+hiệu
+hiệu chỉnh
+hiệu chính
+hiệu dụng
+hiệu điện thế
+hiệu đính
+hiệu đoàn
+hiệu ích
+hiệu lệnh
+hiệu lực
+hiệu năng
+hiệu nghiệm
+hiệu quả
+hiệu số
+hiệu suất
+hiệu thế
+hiệu thính viên
+hiệu triệu
+hiệu trưởng
+hiệu uý
+hiệu ứng
+hiệu ứng lồng kính
+hiệu ứng nhà kính
+him him
+him híp
+hĩm
+hin
+hinh hích
+hình
+hình án
+hình ảnh
+hình bầu dục
+hình bình hành
+hình bóng
+hình cầu
+hình cầu phân
+hình chiếu
+hình chìm
+hình chóp
+hình chóp cụt
+hình chữ nhật
+hình cụ
+hình dáng
+hình dạng
+hình dong
+hình dung
+hình dung từ
+hình hài
+hình hoạ
+hình học
+hình học Euclid
+hình học giải tích
+hình học hoạ hình
+hình học không gian
+hình học phẳng
+hình học phi Euclid
+hình hộp
+hình hộp chữ nhật
+hình khối
+hình không gian
+hình lăng trụ
+hình lập phương
+hình luật
+hình mẫu
+hình nhân
+hình nhi hạ
+hình nhi thượng
+hình như
+hình nón
+hình nón cụt
+hình nộm
+hình pháp
+hình phạt
+hình phẳng
+hình quạt tròn
+hình sắc
+hình sự
+hình tam giác
+hình thái
+hình thái học
+hình thái kinh tế - xã hội
+hình thang
+hình thành
+hình thể
+hình thế
+hình thoi
+hình thù
+hình thức
+hình thức chủ nghĩa
+hình tích
+hình trạng
+hình tròn
+hình tròn xoay
+hình trụ
+hình tượng
+hình vành khăn
+hình vị
+hình viên phấn
+hình vóc
+hình vuông
+hình xuyến
+hỉnh
+hip hop
+híp
+híp-pi
+hipebol
+hippy
+hít
+hít hà
+hiu hắt
+hiu hiu
+hiu quạnh
+HIV
