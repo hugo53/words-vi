@@ -652,3 +652,135 @@ hây hây
 hây hẩy
 hẩy
 hấy
+HD
+HDI
+HĐND
+HĐQT
+He
+he-li
+he-ma-tít
+he-mô-glô-bin
+he-rô-in
+hè
+hè hụi
+hé
+hé răng
+hẹ
+hec
+héc-ta
+hecta
+hecto-
+helium
+hèm
+hèm hẹp
+hẻm
+hematit
+hemoglobin
+hen
+hen suyễn
+hèn
+hèn chi
+hèn đớn
+hèn gì
+hèn hạ
+hèn kém
+hèn mạt
+hèn mọn
+hèn nào
+hèn nhát
+hèn yếu
+hén
+hẹn
+hẹn hò
+hẹn ước
+heo
+heo hắt
+heo heo
+heo héo
+heo hút
+heo may
+heo vòi
+hèo
+hẻo
+hẻo lánh
+héo
+héo don
+héo hắt
+héo hon
+héo mòn
+hẹp
+hẹp bụng
+hẹp hòi
+heroin
+hertz
+hét
+hét lác
+hét ra lửa
+heuristic
+hê
+hề
+hề đồng
+hề gậy
+hề hấn
+hề hề
+hề mồi
+hể hả
+hễ
+hệ đếm
+hệ đếm nhị phân
+hệ điều hành
+hệ đơn vị
+hệ luận
+hệ luỵ
+Hệ Mặt Trời
+hệ mét
+hệ miễn dịch
+hệ quả
+hệ SI
+hệ sinh thánh
+hệ số
+hệ thống
+hệ thống đếm
+hệ thống định vị toàn cầu
+hệ thống hoá
+hệ thức
+hệ tộc
+hệ trọng
+hệ tư tưởng
+hệ từ
+hếch
+hệch
+hên
+hến
+hênh hếch
+hềnh hệch
+hểnh
+hêrôin
+hết
+hết biết
+hết chỗ nói
+hết dạ
+hết đất
+hết đời
+hết hồn
+hết hồn hết vía
+hết hơi
+hết lẽ
+hết lòng
+hết lời
+hết mình
+hết múc
+hết mực
+hết nạc vạc đến xương
+hết nhẵn
+hết nhẽ
+hết nổi
+hết nước
+hết nước hết cái
+hết sảy
+hết sẩy
+hết sức
+hết thảy
+hết vía
+hết ý
+hệt
