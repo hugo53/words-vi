@@ -1087,3 +1087,1251 @@ hiu hắt
 hiu hiu
 hiu quạnh
 HIV
+ho
+ho gà
+ho he
+ho hen
+ho khan
+ho lao
+ho ra bạc khạc ra tiền
+hò
+hò hẹn
+hò hét
+hò khoan
+hò la
+hò lơ
+hò lờ
+hò mái đẩy
+hò reo
+hò voi bắn súng sậy
+hó háy
+hó hé
+họ
+họ đạo
+họ đương
+họ hàng
+họ mạc
+họ tộc
+hoa
+hoa cà hoa vải
+hoa cái
+hoa chân múa tay
+hoa chúc
+hoa cúc
+hoa cương
+hoa đăng
+hoa đèn
+hoa đồng tiền
+hoa giấy
+hoa hậu
+hoa hiên
+hoa hoè
+hoa hoè hoa sói
+hoa hoét
+hoa hồng
+hoa khôi
+hoa lá
+hoa lá cành
+hoa lan
+hoa lệ
+hoa lí
+hoa liễu
+hoa loa kèn
+hoa lơ
+hoa lợi
+hoa lý
+hoa màu
+hoa mầu
+hoa mép dê
+hoa mĩ
+hoa mõm chó
+hoa mõm sói
+hoa môi
+hoa mười giờ
+hoa mỹ
+hoa nguyệt
+hoa niên
+hoa nô
+hoa quả
+hoa râm
+hoa sói
+hoa tai
+hoa tàn nhị rữa
+hoa tay
+hoa thị
+hoa tì
+hoa tiên
+hoa tiêu
+hoa tigôn
+hoa tình
+hoa tỳ
+hoa tự
+hoa văn
+hoa viên
+hoà
+hoà âm
+hoà bình
+hoà bình chủ nghĩa
+hoà cả làng
+hoà cốc
+hoà đàm
+hoà điệu
+hoà đồng
+hoà giải
+hoà hảo
+hoà hiệp
+hoà hiếu
+hoà hoãn
+hoà hội
+hoà hợp
+hoà kết
+hoà khí
+hoà mạng
+hoà mình
+hoà mục
+hoà nghị
+hoà nhã
+hoà nhạc
+hoà nhập
+hoà nhịp
+hoà quyện
+hoà tan
+hoà tấu
+hoà thuận
+hoà thượng
+hoà trộn
+hoà ước
+hoà vốn
+hoả
+hoả bài
+hoả canh
+hoả châu
+hoả công
+hoả diệm sơn
+hoả đàn
+hoả đầu quân
+hoả điểm
+hoả hoạn
+hoả hổ
+hoả hồng
+hoả kế
+hoả khí
+hoả lò
+hoả luyện
+hoả lực
+hoả mai
+hoả mù
+hoả ngục
+hoả pháp
+hoả sơn
+hoả táng
+hoả thiêu
+hoả thực
+hoả tiễn
+Hoả Tinh
+hoả tốc
+hoả tuyến
+hoả xa
+hoá
+hoá bụa
+hoá chất
+hoá công
+hoá dầu
+hoá dược
+hoá đơn
+hoá giá
+hoá giải
+hoá học
+hoá học hữu cơ
+hoá học vô cơ
+hoá hơi
+hoá hợp
+hoá kiếp
+hoá lí
+hoá lỏng
+hoá lý
+hoá mĩ phẩm
+hoá mỹ phẩm
+hoá năng
+hoá nghiệm
+hoá nhi
+hoá phẩm
+hoá phép
+hoá ra
+hoá sinh
+hoá sinh học
+hoá thạch
+hoá thân
+hoá tính
+hoá trang
+hoá trị
+hoá vật
+hoá xương
+hoạ
+hoạ âm
+hoạ bản
+hoạ báo
+hoạ căn
+hoạ chăng
+hoạ công
+hoạ đồ
+hoạ gia
+hoạ hoằn
+hoạ hổ bất thành
+hoạ may
+hoạ mi
+hoạ pháp
+hoạ phẩm
+hoạ sĩ
+hoạ thất
+hoạ tiết
+hoạ vô đơn chí
+hoác
+hoạch định
+hoạch hoẹ
+hoai
+hoai mục
+hoài
+hoài bão
+hoài cảm
+hoài cổ
+hoài của
+hoài nghi
+hoài niệm
+hoài phí
+hoài sơn
+hoài thai
+hoài tưởng
+hoài vọng
+hoại
+hoại sinh
+hoại thư
+hoại tử
+hoan hỉ
+hoan hô
+hoan lạc
+hoan nghênh
+hoan nghinh
+hoan tống
+hoàn
+hoàn bị
+hoàn cảnh
+hoàn cầu
+hoàn chỉnh
+hoàn công
+hoàn hảo
+hoàn hồn
+hoàn lưu
+hoàn lương
+hoàn mĩ
+hoàn mỹ
+hoàn nguyên
+hoàn tất
+hoàn thành
+hoàn thiện
+hoàn toàn
+hoàn trả
+hoàn tục
+hoàn vũ
+hoãn
+hoãn binh
+hoãn binh chi kế
+hoãn xung
+hoán cải
+hoán dụ
+hoán đổi
+hoán vị
+hoạn
+hoạn đồ
+hoạn lộ
+hoạn nạn
+hoạn quan
+hoang
+hoang báo
+hoang dã
+hoang dại
+hoang dâm
+hoang đàng
+hoang đảo
+hoang đường
+hoang hoá
+hoang hoác
+hoang lạnh
+hoang liêu
+hoang mạc
+hoang mang
+hoang phế
+hoang phí
+hoang sơ
+hoang tàn
+hoang thai
+hoang toàng
+hoang tưởng
+hoang vắng
+hoang vu
+hoàng
+hoàng anh
+hoàng ân
+hoàng bá
+hoàng bào
+hoàng cầm
+hoàng cung
+hoàng đàn
+hoàng đản
+hoàng đạo
+hoàng đế
+hoàng đới
+hoàng gia
+hoàng giáp
+hoàng hậu
+hoàng hôn
+hoàng kim
+hoàng kì
+hoàng lan
+hoàng liên
+hoàng phái
+hoàng quyển
+hoàng thái hậu
+hoàng thái tử
+hoàng thành
+hoàng thân
+hoàng thân quốc thích
+hoàng thất
+hoàng thiên
+hoàng thổ
+hoàng thượng
+hoàng tinh
+hoàng tộc
+hoàng tôn
+hoàng triều
+hoàng trùng
+hoàng tuyền
+hoàng tử
+hoàng yến
+hoảng
+hoảng hồn
+hoảng hốt
+hoảng loạn
+hoảng sợ
+hoãng
+hoáng
+hoành
+hoành cách
+hoành cách mô
+hoành độ
+hoành hành
+hoành phi
+hoành thánh
+hoành tráng
+hoành triệt
+hoạnh
+hoạnh hoẹ
+hoạnh phát
+hoạnh tài
+hoạnh tán
+hoạt
+hoạt bản
+hoạt bát
+hoạt cảnh
+hoạt chất
+hoạt đầu
+hoạt động
+hoạt hình
+hoạt hoá
+hoạt hoạ
+hoạt huyết
+hoạt kê
+hoạt kịch
+hoạt lực
+hoạt náo
+hoạt náo viên
+hoạt thạch
+hoạt tinh
+hoạt tính
+hoạt tượng
+hoáy
+hoắc hương
+hoắc lê
+hoắc loạn
+hoặc
+hoặc giả
+hoắm
+hoẵng
+hoắng
+hóc
+hóc búa
+hóc hách
+hóc hiểm
+học
+học bạ
+học bổng
+học chế
+học chính
+học cụ
+học điền
+học đòi
+học đường
+học gạo
+học giả
+học giới
+học hàm
+học hành
+học hiệu
+học hỏi
+học khoá
+học kì
+học kỳ
+học lỏm
+học lóm
+học lực
+học mót
+học phái
+học phẩm
+học phần
+học phí
+học phiệt
+học phong
+học sĩ
+học sinh
+học tài thi phận
+học tập
+học thầy không tầy học bạn
+học thuật
+học thuyết
+học thức
+học trình
+học trò
+học vấn
+học vẹt
+học vị
+học việc
+học viên
+học viện
+học xá
+hocmon
+hoe
+hoe hoe
+hoè
+hoen
+hoen gỉ
+hoen ố
+hoen rỉ
+hoi
+hoi hóp
+hỏi
+hỏi cung
+hỏi dò
+hỏi đáp
+hỏi han
+hỏi nhỏ
+hỏi thăm
+hỏi tội
+hỏi vặn
+hỏi vợ
+hói
+hom
+hom hem
+hom hỏm
+hòm
+hòm gian
+hòm hòm
+hòm thư
+hòm xe
+hòm xiểng
+hỏm
+hõm
+hóm
+hóm hỉnh
+hòn
+hòn bấc ném đi hòn chì ném lại
+hòn dái
+hòn hẻn
+hong
+hong hóng
+hòng
+hỏng
+hỏng hóc
+hỏng kiểu
+hóng
+hóng hớt
+họng
+hoóc-mon
+hoolian
+hóp
+họp
+họp báo
+họp hành
+họp mặt
+họp tập
+hormon
+hót
+hotel
+hô
+hô hào
+hô hấp
+hô hoán
+hô hố
+hồ
+hồ bì
+hồ cầm
+hồ chứa nước
+hồ dễ
+hồ điệp
+hồ đồ
+hồ hải
+hồ hết
+hồ hởi
+hồ li
+hồ li tinh
+hồ lô
+hồ ly
+hồ ly tinh
+hồ nghi
+hồ quang
+hồ sơ
+hồ thỉ
+hồ thỉ tang bồng
+hồ thuỷ
+hồ tiêu
+hồ tinh
+hổ
+hổ chúa
+hổ chuối
+hổ cốt
+hổ danh
+hổ hang
+hổ khẩu
+hổ lang
+hổ lốn
+hổ lửa
+hổ mang
+hổ ngươi
+hổ nhục
+hổ phách
+hổ phù
+hổ phụ sinh hổ tử
+hổ thẹn
+hổ trâu
+hổ trướng
+hổ tướng
+hỗ huệ
+hỗ trợ
+hỗ tương
+hố
+hố chậu
+hố đen
+hố ga
+hố tiêu
+hố xí
+hộ
+hộ chiếu
+hộ đê
+hộ giá
+hộ khẩu
+hộ lại
+hộ lí
+hộ lý
+hộ mạng
+hộ mệnh
+hộ pháp
+hộ pháp cắn trắt
+hộ sản
+hộ sĩ
+hộ sinh
+hộ tang
+hộ thân
+hộ tịch
+hộ tống
+hộ trì
+hộ vệ
+hốc
+hốc hác
+hộc
+hộc tốc
+hôi
+hôi hám
+hôi rình
+hôi tanh
+hôi thối
+hồi
+hồi âm
+hồi cố
+hồi công
+hồi cư
+hồi dương
+hồi đáp
+hồi giáo
+hồi hộp
+hồi hương
+hồi hưu
+hồi kí
+hồi ký
+hồi loan
+hồi lùng
+hồi môn
+hồi phục
+hồi quang
+hồi qui
+hồi quy
+hồi sinh
+hồi sức
+hồi tâm
+hồi tỉnh
+hồi tĩnh
+hồi tố
+hồi tục
+hồi tưởng
+hồi ức
+hồi văn
+hồi xuân
+hổi
+hối
+hối bất cập
+hối cải
+hối đoái
+hối hả
+hối hận
+hối hôn
+hối lộ
+hối lỗi
+hối phiếu
+hối quá
+hối suất
+hối thúc
+hối tiếc
+hội
+hội ái hữu
+hội báo
+hội chẩn
+hội chợ
+hội chùa
+hội chữ thập đỏ
+hội chứng
+hội diễn
+hội đàm
+hội đoàn
+hội đồng
+hội đồng bộ trưởng
+hội đồng chính phủ
+hội đồng đề hình
+hội đồng nhà nước
+hội đồng nhân dân
+hội đồng quản trị
+hội giảng
+hội hè
+hội hoạ
+hội họp
+hội hợp thiện
+hội kiến
+hội lễ
+hội nghị
+hội nghị bàn tròn
+hội ngộ
+hội nguyên
+hội nhập
+hội quán
+hội sở
+hội sư
+hội tề
+hội thám
+hội thao
+hội thảo
+hội thẩm
+hội thẩm nhân dân
+hội thí
+hội thoại
+hội thương
+hội trưởng
+hội tụ
+hội viên
+hội ý
+hôligân
+hôm
+hôm kia
+hôm kìa
+hôm mai
+hôm nay
+hôm qua
+hôm sớm
+hổm
+hôn
+hôn ám
+hôn hít
+hôn lễ
+hôn mê
+hôn nhân
+hôn phối
+hôn quân
+hôn thú
+hôn thư
+hồn
+hồn chậu
+hồn mai
+hồn nhiên
+hồn phách
+hồn thơ
+hồn vía
+hồn xiêu phách lạc
+hổn ha hổn hển
+hổn hà hổn hển
+hổn hển
+hỗn
+hỗn canh hỗn cư
+hỗn chiến
+hỗn danh
+hỗn độn
+hỗn giao
+hỗn hào
+hỗn hống
+hỗn hợp
+hỗn láo
+hỗn loạn
+hỗn mang
+hỗn quân
+hỗn quân hỗn loạn
+hỗn số
+hỗn tạp
+hỗn thực
+hỗn xược
+hộn
+hông
+hồng
+hồng bạch
+hồng bì
+hồng cầu
+hồng diệp
+hồng đào
+hồng điều
+hồng đơn
+hồng hạc
+hồng hào
+hồng hoa
+hồng hoang
+hồng hộc
+hồng huyết cầu
+hồng lâu
+hồng lô
+hồng mao
+hồng ngoại
+hồng ngọc
+hồng nhan
+hồng nhan bạc mệnh
+hồng nhan bạc phận
+hồng nhan đa truân
+hồng nhung
+hồng phúc
+hồng quân
+hồng quần
+hồng quế
+hồng sắc
+hồng tâm
+hồng thập tự
+hồng thuỷ
+hồng trần
+hồng xiêm
+hồng y giáo chủ
+hổng
+hổng hểnh
+hỗng
+hống hách
+hộp
+hộp đen
+hộp đêm
+hộp giảm tốc
+hộp quẹt
+hộp số
+hộp thoại
+hộp thư
+hộp tốc độ
+hốt
+hốt hoảng
+hốt nhiên
+hột
+hột cơm
+hơ
+hơ hải
+hơ hỏng
+hơ hớ
+hờ
+hờ hững
+hở
+hở hang
+hớ
+hớ hênh
+hơi
+hơi đâu mà
+hơi đồng
+hơi hám
+hơi hướm
+hơi hướng
+hơi ngạt
+hơi nước
+hơi sức
+hời
+hời hợt
+hởi dạ
+hởi lòng
+hỡi
+hỡi ôi
+hỡi ơi
+hợi
+hờm
+hợm
+hợm hĩnh
+hợm mình
+hơn
+hơn bù kém
+hơn hớn
+hơn nữa
+hơn thiệt
+hờn
+hờn dỗi
+hờn duyên tủi phận
+hờn giận
+hờn mát
+hờn oán
+hờn trách
+hờn tủi
+hớn hở
+hớp
+hớp hồn
+hợp
+hợp âm
+hợp ca
+hợp cách
+hợp cẩn
+hợp chất
+hợp doanh
+hợp đề
+hợp điểm
+hợp đồng
+hợp hiến
+hợp khẩu
+hợp kim
+hợp kim màu
+hợp kim trung gian
+hợp lệ
+hợp lí
+hợp lí hoá
+hợp lực
+hợp lưu
+hợp lý
+hợp lý hoá
+hợp pháp
+hợp phần
+hợp quần
+hợp số
+hợp tác
+hợp tác hoá
+hợp tác xã
+hợp tan
+hợp táng
+hợp tấu
+hợp thành
+hợp thời
+hợp thức
+hợp thức hoá
+hợp tình hợp lí
+hợp tình hợp lý
+hợp tuyển
+hợp tử
+hợp xướng
+hợp ý
+hớt
+hớt hải
+hớt hơ hớt hải
+hớt lẻo
+hớt tóc
+HT
+HTML
+HTTP
+HTX
+hu hu
+hù
+hù doạ
+hủ
+hủ bại
+hủ hỉ
+hủ hoá
+hủ lậu
+hủ nho
+hủ tiếu
+hủ tục
+hũ
+hú
+hú hí
+hú hoạ
+hú hồn
+hú hồn hú vía
+hú tim
+hú vía
+hụ
+hua
+hùa
+huân chương
+huân tước
+huấn
+huấn dụ
+huấn đạo
+huấn điều
+huấn học
+huấn lệnh
+huấn luyện
+huấn luyện viên
+huấn thị
+huấn từ
+húc
+hục
+hục hặc
+huê
+huê hồng
+huê lợi
+huê tình
+huề
+huệ
+huệ tây
+huếch hoác
+huênh hoang
+hui hút
+hùi hụi
+hủi
+húi
+hụi
+hum húp
+hùm
+hùm beo
+hũm
+hụm
+hun
+hun đúc
+hun hút
+hùn
+hùn hạp
+hùn vào
+hủn hoẳn
+hung
+hung ác
+hung bạo
+hung dữ
+hung đồ
+hung hãn
+hung hăng
+hung hiểm
+hung khí
+hung phạm
+hung tàn
+hung thần
+hung thủ
+hung tinh
+hung tợn
+hùng
+hùng biện
+hùng ca
+hùng cứ
+hùng cường
+hùng dũng
+hùng hậu
+hùng hoàng
+hùng hổ
+hùng hồn
+hùng hục
+hùng hùng hổ hổ
+hùng khí
+hùng mạnh
+hùng tâm
+hùng tráng
+hùng vĩ
+húng
+húng chanh
+húng chó
+húng dổi
+húng dũi
+húng hắng
+húng lìu
+húng quế
+huống
+huống chi
+huống gì
+huống hồ
+huống nữa
+huốt
+huơ
+húp
+húp híp
+hụp
+hút
+hút chích
+hút hít
+hút hồn
+hút máu hút mủ
+hút mật
+hút xách
+hụt
+hụt hẫng
+huy chương
+huy hiệu
+huy hoàng
+huy hoắc
+huỷ
+huỷ báng
+huỷ bỏ
+huỷ diệt
+huỷ hoại
+huý
+huý kị
+huých
+huỵch
+huỵch toẹt
+huyên cỗi xuân già
+huyên đường
+huyên náo
+huyên thiên
+huyên thuyên
+huyên thuyên xích đế
+huyên truyền
+huyền
+huyền ảo
+huyền bí
+huyền chức
+huyền diệu
+huyền hoặc
+huyền học
+huyền nhiệm
+huyền phù
+huyền sâm
+huyền sử
+huyền thoại
+huyền tích
+huyền vi
+huyễn diệu
+huyễn hoặc
+huyễn tưởng
+huyện
+huyện bộ
+huyện đoàn
+huyện đội
+huyện đường
+huyện lệnh
+huyện lị
+huyện lỵ
+huyện nha
+huyện thị
+huyện uỷ
+huyện uỷ viên
+huyết
+
+áp
+áp cao
+bạch
+bài
+cầu
+chiến
+dịch
+dụ
+giác
+hệ
+học
+khí
+mạch
+quản
+sắc tố
+thanh
+thống
+thư
+tộc
+trầm
+tương
+huyệt
+huyệt mộ
+huynh
+huynh đệ
+huynh đệ tương tàn
+huynh trưởng
+huỳnh
+huỳnh huỵch
+huỳnh quang
+huỳnh tinh
+huýt
+huýt gió
+huýt sáo
+hư
+hư ảo
+hư cấu
+hư danh
+hư đốn
+hư hại
+hư hao
+hư hỏng
+hư hốt
+hư huyền
+hư hư thực thực
+hư không
+hư nhược
+hư số
+hư thân
+hư trương thanh thế
+hư từ
+hư văn
+hư vị
+hư vinh
+hư vô
+hừ
+hừ hừ
+hử
+hứ
+hự
+hứa
+hứa hão
+hứa hẹn
+hứa hôn
+hứa hươu hứa vượn
+hực
+hực hỡ
+hừm
+hưng
+hưng binh
+hưng hửng
+hưng khởi
+hưng phấn
+hưng phế
+hưng thịnh
+hưng vong
+hưng vượng
+hừng
+hừng hực
+hửng
+hững hờ
+hứng
+hứng chí
+hứng chịu
+hứng gió
+hứng khởi
+hứng thú
+hứng tình
+hườm
+hượm
+hương
+hương án
+hương ẩm
+hương bài
+hương binh
+hương bộ
+hương cả
+hương chính
+hương chủ
+hương chức
+hương cống
+hương dõng
+hương dũng
+hương hào
+hương hoa
+hương hoả
+hương hội
+hương hồn
+hương khói
+hương kiểm
+hương lạnh khói tàn
+hương lí
+hương liệu
+hương lộ
+hương lửa
+hương lý
+hương mục
+hương nguyên
+hương nguyền
+hương nhu
+hương phụ
+hương quan
+hương quản
+hương sắc
+hương sen
+hương sư
+hương thân
+hương thí
+hương thôn
+hương trưởng
+hương ước
+hương vị
+hương vòng
+hưởng
+hưởng dương
+hưởng lạc
+hưởng thọ
+hưởng thụ
+hưởng ứng
+hướng
+hướng dẫn
+hướng dẫn viên
+hướng dương
+hướng đạo
+hướng đạo sinh
+hướng động
+hướng nghiệp
+hướng ngoại
+hướng nội
+hướng tâm
+hướng thiện
+hươu
+hươu cao cổ
+hươu sao
+hươu xạ
+hưu
+hưu bổng
+hưu canh
+hưu chiến
+hưu quạnh
+hưu trí
+hữu
+hữu ái
+hữu bang
+hữu biên
+hữu cơ
+hữu danh vô thực
+hữu dũng vô mưu
+hữu dụng
+hữu dực
+hữu định luận
+hữu hạn
+hữu hảo
+hữu hiệu
+hữu hình
+hữu ích
+hữu khuynh
+hữu lí
+hữu lý
+hữu ngạn
+hữu nghị
+hữu quan
+hữu sản
+hữu sắc vô hương
+hữu sinh
+hữu sinh vô dưỡng
+hữu sự
+hữu tài vô hạnh
+hữu thanh
+hữu thần luận
+hữu tỉ
+hữu tình
+hữu tính
+hữu trách
+hữu tuyến
+hữu tỷ
+hữu xạ tự nhiên hương
+hữu ý
+hy hữu
+hy sinh
+hy vọng
+hỷ tín
+hỷ xả
+hý
+hý hước
+hý kịch
+hý trường
+hý viện
+hydrocarbon
+hydrochlorur
+hydrogen
+hydroxid
+hypebol
+hyperbol
+Hz
