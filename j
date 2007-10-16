@@ -1,0 +1,13 @@
+J
+jacket
+jambông
+javel
+jazz
+jean
+jeep
+jiujitsu
+joule
+judo
+juđô
+jun
+jupe
