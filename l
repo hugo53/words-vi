@@ -604,3 +604,225 @@ lắt nhắt
 lặt
 lặt và lặt vặt
 lặt vặt
+lấc ca lấc cấc
+lấc cấc
+lấc láo
+lấc xấc
+lâm
+lâm bạ
+lâm bệnh
+lâm bồn
+lâm chung
+lâm học
+lâm li
+lâm luật
+lâm ly
+lâm nạn
+lâm nghiệp
+lâm nguy
+lâm phần
+lâm râm
+lâm sản
+lâm sàng
+lâm sinh
+lâm sự
+lâm tặc
+lâm thâm
+lâm thổ sản
+lâm thời
+lâm trận
+lâm trường
+lâm tuyền
+lâm viên
+lầm
+lầm bà lầm bầm
+lầm bầm
+lầm đường
+lầm đường lạc lối
+lầm lạc
+lầm lầm
+lầm lầm lì lì
+lầm lẫn
+lầm lì
+lầm lỗi
+lầm lội
+lầm lỡ
+lầm lũi
+lầm lụi
+lầm rầm
+lầm than
+lầm thầm
+lẩm
+lẩm bà lẩm bẩm
+lẩm bẩm
+lẩm ca lẩm cẩm
+lẩm cà lẩm cẩm
+lẩm cẩm
+lẩm nhẩm
+lẫm
+lẫm cẫm
+lẫm chẫm
+lẫm lẫm
+lẫm liệt
+lấm
+lấm chấm
+lấm la lấm lét
+lấm láp
+lấm lem
+lấm lét
+lấm tấm
+lân
+lân bang
+lân bàng
+lân cận
+lân la
+lân lí
+lân lý
+lân quang
+lân tinh
+lần
+lần chà lần chần
+lần chần
+lần hồi
+lần khân
+lần khần
+lần lần
+lần lữa
+lần lượt
+lần mò
+lần thần
+lẩn
+lẩn khuất
+lẩn lút
+lẩn mẩn
+lẩn quẩn
+lẩn quất
+lẩn tha lẩn thẩn
+lẩn thẩn
+lẩn tránh
+lẩn trốn
+lẩn vẩn
+lẫn
+lẫn cẫn
+lẫn lộn
+lấn
+lấn áp
+lấn át
+lấn bấn
+lấn cấn
+lấn chiếm
+lấn lướt
+lấn sân
+lận
+lận đận
+lâng láo
+lâng lâng
+lấp
+lấp la lấp lánh
+lấp la lấp lửng
+lấp lánh
+lấp láy
+lấp liếm
+lấp ló
+lấp loá
+lấp loáng
+lấp loé
+lấp lú
+lấp lửng
+lấp xấp
+lập
+lập bập
+lập cà lập cập
+lập cập
+lập chí
+lập công
+lập dị
+lập đông
+lập giá
+lập hạ
+lập hiến
+lập kế
+lập là
+lập loè
+lập lờ
+lập luận
+lập mưu
+lập nghiêm
+lập nghiệp
+lập pháp
+lập phương
+lập quốc
+lập tâm
+lập thân
+lập thể
+lập thu
+lập trình
+lập trình viên
+lập trường
+lập tức
+lập xuân
+lất phất
+lật
+lật bật
+lật đà lật đật
+lật đật
+lật đổ
+lật lọng
+lật mặt
+lật ngược
+lật phật
+lật tẩy
+lâu
+lâu bền
+lâu dài
+lâu đài
+lâu đời
+lâu hoắc
+lâu la
+lâu lắc
+lâu lâu
+lâu nay
+lâu nhâu
+lầu
+lầu bà lầu bầu
+lầu bầu
+lầu hồng
+lầu nhà lầu nhầu
+lầu nhầu
+lầu son gác tía
+lầu trang
+lầu xanh
+lẩu
+lẩu bẩu
+lậu
+lây
+lây dây
+lây lan
+lây lất
+lây nhây
+lây nhiễm
+lây rây
+lây truyền
+lầy
+lầy lội
+lầu lụa
+lầy nhầy
+lẩy
+lẩy bà lẩy bẩy
+lẩy bẩy
+lẫy
+lẫy lừng
+lấy
+lấy có
+lấy công làm lãi
+lấy độc trị độc
+lấy được
+lấy giọng
+lấy làm
+lấy lệ
+lấy lòng
+lấy nê
+lấy ngắn nuôi dài
+lấy rồi
+lấy thịt đè người
+lấy thúng úp voi
