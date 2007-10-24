@@ -494,3 +494,113 @@ lạy ông tôi ở bụi này
 lạy tạ
 lạy van
 laze
+lắc
+lắc cắc
+lắc đầu
+lắc đầu lè lưỡi
+lắc la lắc lư
+lắc lắc
+lắc lê
+lắc lư
+lắc rắc
+lặc lè
+lăm
+lăm lăm
+lăm lẳm
+lăm le
+lăm răm
+lăm tăm
+lăm xăm
+lắm
+lắm chuyện
+lắm điều
+lắm mối tối nằm không
+lắm mồm
+lắm mồm lắm miệng
+lắm sãi không ai đóng cửa chùa
+lắm thầy thối ma
+lăn
+lăn
+lăn chiêng
+lăn cù
+lăn đùng
+lăn đùng ngã ngửa
+lăn kềnh
+lăn lóc
+lăn lộn
+lăn lưng
+lăn phăn
+lăn queo
+lăn tay
+lăn tăn
+lăn xả
+lằn
+lẳn
+lặn
+lặn lội
+lại ngòi ngoi nước
+lặn ngụp
+lăng
+lăng băng
+lăng kính
+lăng líu
+lăng loàn
+lăng mạ
+lăng miếu
+lăng mộ
+lăng nhăng
+lăng nhăng lít nhít
+lăng nhục
+lăng quăng
+lăng tẩm
+lăng trì
+lăng trụ
+lăng xa lăng xăng
+lăng xăng
+lăng xê
+lằng nhà lằng nhằng
+lằng nhằng
+lẳng
+lẳng khẳng
+lẳng lặng
+lẳng lơ
+lẳng nhẳng
+lẵng
+lẵng đẵng
+lẵng nhẵng
+lắng
+lắng dịu
+lắng đắng
+lắng đọng
+lắng nghe
+lắng tai
+lặng
+lặng câm
+lặng im
+lặng lẽ
+lặng lờ
+lặng ngắt
+lặng phắc
+lặng thầm
+lặng thinh
+lặng tờ
+lặng trang
+lặng yên
+lắp
+lắp ba lắp bắp
+lắp bắp
+lắp đặt
+lắp ghép
+lắp ráp
+lắp xắp
+lặp
+lặp bặp
+lắt la lắt lẻo
+lắt lay
+lắt lẻo
+lắt léo
+lắt nha lắt nhắt
+lắt nhắt
+lặt
+lặt và lặt vặt
+lặt vặt
