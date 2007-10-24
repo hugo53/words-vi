@@ -919,3 +919,120 @@ lép xẹp
 lẹp kẹp
 lẹp xẹp
 lẹt đẹt
+lê
+lê dân
+lê dương
+lê la
+lê lết
+lê thê
+lê thứ
+lề
+lề đường
+lề lối
+lề luật
+lề mà lề mề
+lề mề
+lề thói
+lể
+lễ
+lễ bái
+lễ đài
+lễ độ
+lễ đường
+lễ giáo
+lễ hội
+lễ lạt
+lễ mạo
+lễ mễ
+lễ nghi
+lễ nghĩa
+lễ phẩm
+lễ phép
+lễ phục
+lễ tân
+lễ thức
+lễ tiết
+lễ vật
+lệ
+lệ bộ
+lệ làng
+lệ luật
+lệ ngoại
+lệ nông
+lệ phí
+lệ thuộc
+lệ tục
+lếch tha lếch thếch
+lếch thếch
+lệch lạc
+lên
+lên án
+lên cân
+lên cơn
+lên dây
+lên đạn
+lên đèn
+lên đồng
+lên đời
+lên đường
+lên gân
+lên gân lên cốt
+lên giọng
+lên khung
+lên khuôn
+lên lão
+lên lớp
+lên mặt
+lên men
+lên ngôi
+lên nước
+lên râu
+lên sởi
+lên tay
+lên thác xuống ghềnh
+lên tiếng
+lên voi xuống chó
+lên xe xuống ngựa
+lên chênh
+lênh đênh
+lênh kha lênh khênh
+lênh khênh
+lênh láng
+lềnh
+lềnh bềnh
+lềnh đềnh
+lềnh kềnh
+lềnh phềnh
+lểnh nghểnh
+lễnh loãng
+lệnh
+lệnh ái
+lệnh bà
+lệnh chỉ
+lệnh lang
+lệnh ông không bằng cồng bà
+lệnh tiễn
+lêninit
+lết
+lết bết
+lệt bệt
+lệt đệt
+lệt sệt
+lệt xệt
+lêu
+lêu bêu
+lêu đêu
+lêu lổng
+lêu nghêu
+lêu têu
+lều
+lều bều
+lều chiếu
+lều chõng
+lều khều
+lều nghều
+lều phều
+lều quều
+lểu đểu
+lếu
+lếu láo
