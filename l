@@ -826,3 +826,96 @@ lấy ngắn nuôi dài
 lấy rồi
 lấy thịt đè người
 lấy thúng úp voi
+LC
+lễ bạc lòng thành
+lậy
+lậy lục
+le
+le le
+le lé
+le lói
+le te
+lè
+lè lẹ
+lè nhà lè nhè
+lè nhè
+lè tè
+lẻ
+lẻ loi
+lẻ tẻ
+lẽ
+lẽ mọn
+lẽ nào
+lẽ phải
+lẽ ra
+lé
+lẹ
+lẹ làng
+lem
+lem lẻm
+lem lém
+lem luốc
+lem nha lem nhem
+lem nhem
+lèm bà lèm nhèm
+lèm bèm
+lẻm
+lém
+lém đém
+lém lỉnh
+lẹm
+len
+len dạ
+len gai
+len lách
+len lén
+len lét
+len lỏi
+lèn
+lẻn
+lẻn lút
+lén
+lén lút
+leng keng
+leng reng
+lẻng xẻng
+léng phéng
+leninit
+leo
+leo heo
+leo kheo
+leo khoeo
+leo lắt
+leo lẻo
+leo lét
+leo nheo
+leo nheo lúc nhúc
+leo teo
+leo thang
+leo trèo
+lèo
+lèo khoèo
+lèo lá
+lèo lái
+lèo nhèo
+lèo tèo
+lẻo
+lẻo khoẻo
+lẽo
+lẽo đẽo
+léo
+léo hánh
+léo nha léo nhéo
+léo nhéo
+léo xéo
+lẹo
+lép
+lép ba lép bép
+lép bép
+lép kẹp
+lép nhép
+lép vế
+lép xẹp
+lẹp kẹp
+lẹp xẹp
+lẹt đẹt
