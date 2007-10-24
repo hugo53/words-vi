@@ -1036,3 +1036,271 @@ lều quều
 lểu đểu
 lếu
 lếu láo
+li
+li bì
+li biệt
+li dị
+li gián
+li hôn
+li khai
+li kì
+li lai
+li loạn
+li-pít
+li tán
+li tâm
+li thân
+li-thi
+li tì
+li tô
+lì
+lì lì
+lì lợm
+lì xì
+lí
+lí dịch
+lí do
+lí giải
+lí hào
+lí hương
+lí la lí lắc
+lí láu
+lí lắc
+lí lẻ
+lí lịch
+lí liệu pháp
+lí luận
+lí nha lí nhí
+lí nhí
+lí số
+lí sự
+lí sự cùn
+lí tài
+lí thú
+lí thuyết
+lí thuyết tập hợp
+lí thuyết thông tin
+lí thuyết trò chơi
+lí thuyết tương đối
+lí thuyết xác suất
+lí tính
+lí trí
+lí trưởng
+lí tưởng
+lí tưởng hoá
+lị
+lị sở
+lia
+lia chia
+lia lịa
+lìa
+lìa bỏ
+licence
+lích ca lích kích
+lích kích
+lích rích
+lịch
+lịch bà lịch bịch
+lịch bịch
+lịch blốc
+lịch cà lịch kịch
+lịch duyệt
+lịch đại
+lịch kịch
+lịch lãm
+lịch pháp
+lịch phịch
+lịch sử
+lịch sự
+lịch thiệp
+lịch tờ
+lịch trình
+liếc
+liêm
+liêm chính
+liêm khiết
+liêm phóng
+liêm sỉ
+liềm
+liếm
+liếm gót
+liếm láp
+liệm
+liên
+liên bang
+liên bộ
+liên can
+liên cầu khuẩn
+liên chi
+liên chi hồ điệp
+liên chi uỷ
+liên danh
+liên doanh
+liên đái
+liên đoàn
+liên đội
+liên đới
+liên gia
+liên gia trưởng
+liên hệ
+liên hiệp
+liên hoan
+liên hoan phim
+liên hoàn
+liên hồi
+liên hồi kì trận
+liên hồi kỳ trận
+liên hợp
+liên kết
+liên khu
+liên kiều
+liên lạc
+liên liến
+liên luỵ
+liên miên
+liên minh
+liên ngành
+liên nhục
+liên quan
+liên quân
+liên thanh
+liên thông
+liên tịch
+liên tiếp
+liên tục
+liên từ
+liên tưởng
+liên vận
+liền
+liền liền
+liền tay
+liền tù tì
+liễn
+liến
+liến láu
+liến thoắng
+liểng xiểng
+liệng
+liếp
+liếp nhiếp
+liệt
+liệt bại
+liệt cử
+liệt cường
+liệt dương
+liệt giường
+liệt giường liệt chiếu
+liệt kê
+liệt nữ
+liệt sĩ
+liệt thánh
+liệt truyện
+liêu thuộc
+liêu xiêu
+liều
+liều liệu
+liều lĩnh
+liều lượng
+liều mạng
+liều mình
+liễu
+liễu bồ
+liễu yếu đào tơ
+liệu
+liệu cái thần hồn
+liệu chứng
+liệu cơm gắp mắm
+liệu gió phất cờ
+liệu hồn
+liệu lí
+liệu lý
+liệu pháp
+liệu thần hồn
+liệu trình
+lim
+lim dim
+lịm
+linh bài
+linh cảm
+linh cẩu
+linh chi
+linh cữu
+linh diệu
+linh dược
+linh dương
+linh đan
+linh đinh
+linh đình
+linh động
+linh đơn
+linh giác
+linh hoạt
+linh hồn
+linh khí
+linh kiện
+linh lỉnh
+linh lợi
+linh miêu
+linh mục
+linh nghiệm
+linh sàng
+linh ta linh tinh
+linh tinh
+linh tinh lang tang
+linh tính
+linh trưởng
+linh ứng
+linh vị
+linh xa
+lình
+lình xình
+lỉnh
+lỉnh ca lỉnh cỉnh
+lỉnh cỉnh
+lĩnh
+lĩnh canh
+lĩnh giáo
+lĩnh hội
+lĩnh trưng
+lĩnh vực
+lĩnh xướng
+lính
+lính chiến
+lính cơ
+lính dõng
+lính dù
+lính đánh thuê
+lính giản
+lính hầu
+lính kín
+lính lệ
+lính quýnh
+lính tập
+lính tẩy
+lính thú
+lính thuỷ
+lính thuỷ đánh bộ
+lính tráng
+lịnh
+líp
+lipid
+lipit
+lít
+lít nha lít nhít
+lít nhít
+lithi
+lithium
+liu điu
+liu riu
+líu
+líu díu
+líu la líu lô
+líu lo
+líu lô
+líu nhíu
+líu quýu
+líu ra líu ríu
+líu ríu
+líu tíu
+lịu địu
+liveshow
