@@ -1734,3 +1734,148 @@ lột
 lột tả
 lột trần
 lột xác
+lơ
+lơ chơ
+lơ chơ lỏng chỏng
+lơ đãng
+lơ đễnh
+lơ hồng
+lơ là
+lơ láo
+lơ lớ
+lơ lửng
+lơ lửng con cá vàng
+lơ mơ
+lơ nga lơ ngơ
+lơ ngơ
+lơ phơ
+lơ thơ
+lơ tơ mơ
+lơ vơ
+lờ
+lờ đờ
+lờ khờ
+lờ lãi
+lờ lợ
+lờ lững
+lờ mờ
+lờ ngờ
+lờ tịt
+lờ và lờ vờ
+lờ vờ
+lở
+lở láy
+lở loét
+lở lói
+lở mồm long móng
+lở sơn
+lở lở
+lỡ
+lỡ bước
+lỡ cơ
+lỡ cỡ
+lỡ dở
+lỡ duyên
+lỡ đường
+lỡ làng
+lỡ lầm
+lỡ lời
+lỡ ra
+lỡ tàu
+lỡ thì
+lỡ thời
+lớ
+lớ ngớ
+lớ quớ
+lớ xớ
+lợ
+lơi
+lơi lả
+lơi lỏng
+lời
+lời ăn lỗ chịu
+lời ăn tiếng nói
+lời bạt
+lời đường mật
+lời giải
+lời lãi
+lời lẽ
+lời lỗ
+lời nói
+lời nói đầu
+lời nói gió bay
+lời nói gói tội
+lời nói gói vàng
+lời ong tiếng ve
+lời qua tiếng lại
+lời ra tiếng vào
+lời toà soạn
+lời tựa
+lời văn
+lỡi
+lợi
+lợi bất cập hại
+lợi danh
+lợi dụng
+lợi điểm
+lợi hại
+lợi ích
+lợi khẩu
+lợi khí
+lợi lộc
+lợi nhuận
+lợi niệu
+lợi quyền
+lợi suất
+lợi thế
+lợi tiểu
+lợi tức
+lờm lợm
+lởm cha lởm chởm
+lởm chởm
+lởm khà lởm khởm
+lởm khởm
+lỡm
+lợm
+lợm giọng
+lơn tơn
+lờn
+lờn bơn
+lờn lợt
+lởn vởn
+lớn
+lớn bồng
+lớn bổng
+lớn lao
+lớn khôn
+lớn mạnh
+lớn nhỏ
+lớn phổng
+lớn tiếng
+lớn tuổi
+lớn tướng
+lợn
+lợn bột
+lợn cà
+lợn cấn
+lợn cợn
+lợn dái
+lợn gạo
+lợn hạch
+lợn ỉ
+lợn lành chữa thành lợn què
+lợn lòi
+lợn nái
+lợn rừng
+lợn sề
+lợn sữa
+lợn thịt
+lợn ỷ
+lớp
+lớp học
+lớp lang
+lớp nhớp
+lợp
+lớt phớt
+lợt
+lợt lạt
