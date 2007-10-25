@@ -1578,3 +1578,159 @@ lọt lưới
 lọt sàng xuống nia
 lọt tai
 lọt thỏm
+lô
+lô cốt
+lô lốc
+lô nhô
+lô xích xông
+lô xô
+lồ
+lồ lộ
+lồ ô
+lổ đổ
+lỗ
+lỗ bì
+lỗ chân lông
+lỗ châu mai
+lỗ chỗ
+lỗ đáo
+lỗ đen
+lỗ đít
+lỗ hổng
+lỗ lã
+lỗ lãi
+lỗ mãng
+lỗ mỗ
+lỗ vốn
+lố
+lố bịch
+lố lăng
+lố lỉnh
+lố nhố
+lộ
+lộ giới
+lộ hầu
+lộ phí
+lộ tẩy
+lộ thiên
+lộ trình
+lộ xỉ
+lốc
+lốc cốc
+lốc lịch
+lốc nhốc
+lốc thốc
+lộc
+lộc cộc
+lộc điền
+lộc ngộc
+lộc nhung
+lộc xộc
+lôgic
+lôgich
+lôi
+lôi bè kéo cánh
+lôi đình
+lôi kéo
+lôi long
+lôi thôi
+lôi thôi lếch thếch
+lôi thôi lốc thốc
+lồi
+lồi lõm
+lỗi
+lỗi lạc
+lỗi lầm
+lỗi thời
+lối
+lối thoát
+lối xóm
+lội
+lội bộ
+lội suối băng ngàn
+lôm côm
+lôm nhôm
+lồm cồm
+lồm ngồm
+lổm ngổm
+lổm nhổm
+lốm đốm
+lộm cộm
+lồn
+lổn ngổn
+lổn nha lổn nhổn
+lổn nhổn
+lốn nhốn
+lộn
+lộn ẩu
+lộn bậy
+lộn bậy lộn bạ
+lộn chồng
+lộn lạo
+lộn mề gà
+lộn máu
+lộn mửa
+lộn nhào
+lộn nhèo
+lộn nhộn
+lộn phèo
+lộn ruột
+lộn sòng
+lộn tiết
+lộn tùng phèo
+lộn xà lộn xộn
+lộn xộn
+lông
+lông ba lông bông
+lông bông
+lông bông lang bang
+lông cặm
+lông hồng
+lông hút
+lông lá
+lông lốc
+lông mao
+lông mày
+lông măng
+lông mi
+lông nheo
+lông nhông
+lông quặm
+lông tơ
+lông vũ
+lồng
+lồng ấp
+lồng bàn
+lồng bồng
+lồng cồng
+lồng ghép
+lồng hổng
+lồng kính
+lồng lộn
+lồng lộng
+lồng ngực
+lồng tiếng
+lổng cha lổng chổng
+lổng chổng
+lộng
+lộng gió
+lộng hành
+lộng lẫy
+lộng ngôn
+lộng ngữ
+lộng óc
+lộng quyền
+lốp
+lốp ba lốp bốp
+lốp bốp
+lốp cốp
+lốp đốp
+lộp bà lộp bộp
+lộp bộp
+lộp cộp
+lộp độp
+lốt
+lột
+lột tả
+lột trần
+lột xác
