@@ -1879,3 +1879,263 @@ lợp
 lớt phớt
 lợt
 lợt lạt
+lu
+lu bu
+lu bù
+lu loa
+lu mờ
+lu đù
+lù đù
+lù khù
+lù lù
+lù mù
+lù rù
+lù xù
+lủ khủ
+lủ khủ lù khù
+lũ
+lũ lĩ
+lũ lụt
+lũ lượt
+lũ ống
+lũ quét
+lú
+lú lẫn
+lú lấp
+lú nhú
+lú ruột lú gan
+lụ khà lụ khụ
+lua
+lua tua
+lùa
+lủa tủa
+lũa
+lúa
+lúa cấy
+lúa chét
+lúa đông-xuân
+lúa hè-thu
+lúa lốc
+lúa ma
+lúa má
+lúa mạch
+lúa mì
+lúa nổi
+lúa nước
+lúa nương
+lúa rẫy
+lúa sạ
+lúa sớm
+lúa thu
+lúa trời
+lúa xuân
+lúa xuân-hè
+lụa
+lụa đậu
+lụa là
+luân canh
+luân chuyển
+luân hồi
+luân lạc
+luân lí
+luân lí học
+luân lưu
+luân lý
+luân lý học
+luân phiên
+luân thường
+luẩn quẩn
+luấn quấn
+luận
+luận án
+luận bàn
+luận chiến
+luận chứng
+luận cứ
+luận cương
+luận đề
+luận điểm
+luận điệu
+luận đoán
+luận giải
+luận lí
+luận lí học
+luận lý
+luận lý học
+luận thuyết
+luận tội
+luận văn
+luật
+luật bài trung
+luật bằng trắc
+luật chơi
+luật dân sự
+luật định
+luật gia
+luật hành chính
+luật hình sự
+luật học
+luật hộ
+luật khoa
+luật lệ
+luật pháp
+luật quốc tế
+luật rừng
+luật sư
+luật tố tụng dân sự
+luật tố tụng hình sự
+luật tục
+lúc
+lúc cúc
+lúc la lúc lắc
+lúc lắc
+lúc lỉu
+lúc nào
+lúc nha lúc nhúc
+lúc nhúc
+lục
+lục bát
+lục bình
+lục bục
+lục chiến
+lục cục
+lục địa
+lục đục
+lục giác
+lục lạc
+lục lạo
+lục lăng
+lục lâm
+lục lọi
+lục lộ
+lục phẩm
+lục phù
+lục phủ ngũ tạng
+lục quân
+lục soạn
+lục soát
+lục súc
+lục sục
+lục sự
+lục tục
+lục vấn
+lui
+lui cui
+lui tới
+lùi
+lùi bước
+lùi lũi
+lùi lụi
+lùi xùi
+lủi
+lủi thủi
+lúi húi
+lúi xùi
+lụi
+lụi cụi
+lụi hụi
+lụi xụi
+lum khum
+lùm
+lùm lùm
+lủm
+lũm
+lúm
+lúm đồng tiền
+lụm cụm
+lùn
+lùn tè
+lùn tịt
+lủn củn
+lủn mủm
+lũn
+lũn chũn
+lũn cũn
+lún
+lún phún
+lụn
+lụn bại
+lụn vụn
+lung
+lung bung
+lung lạc
+lung lay
+lung liêng
+lung linh
+lung ta lung tung
+lung tung
+lung tung beng
+lùng bùng
+lùng nhà lùng nhùng
+lùng nhùng
+lùng sục
+lùng thùng
+lùng tùng
+lủng
+lủng bủng
+lủng ca lủng củng
+lủng cà lủng củng
+lủng củng
+lủng la lủng lẳng
+lủng lẳng
+lủng liểng
+lũng
+lũng đoạn
+lúng ba lúng búng
+lúng búng
+lúng la lúng liếng
+lúng liếng
+lúng ta lúng túng
+lúng túng
+lụng bụng
+lụng thà lụng thụng
+luộc
+luôm nhuôm
+luộm thà luộm thuộm
+luộm thuộm
+luôn
+luôn luôn
+luôn thể
+luôn tiện
+luồn
+luồn cúi
+luồn lách
+luồn lỏi
+luồn lót
+luồn lọt
+luồn luỵ
+luông tuồng
+luồng
+luồng lạch
+luỗng
+luống
+luống cuống
+luống tuổi
+luốt
+lúp
+lúp xúp
+lụp bụp
+lụp chụp
+lút
+lút cút
+lụt
+lụt cụt
+lụt lội
+luỹ
+luỹ thừa
+luỹ tiến
+luỵ
+luých
+luyên thuyên
+luyến
+luyến ái
+luyến ái quan
+luyến láy
+luyến tiếc
+luyện
+luyện kim
+luyện kim bột
+luyện kim đen
+luyện kim màu
+luyện tập
+luýnh quýnh
