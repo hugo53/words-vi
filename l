@@ -2139,3 +2139,266 @@ luyện kim đen
 luyện kim màu
 luyện tập
 luýnh quýnh
+lư
+lừ
+lừ đừ
+lừ khừ
+lừ lừ
+lừ thừ
+lử
+lử cò bợ
+lử đử
+lử đử lừ đừ
+lử khử
+lử khử lừ khừ
+lử lả
+lử thử
+lử thử lừ thừ
+lữ điếm
+lữ đoàn
+lữ hành
+lữ khách
+lữ quán
+lữ thứ
+lữ xá
+lưa
+lưa thưa
+lừa
+lừa bị
+lừa dối
+lừa đảo
+lừa gạt
+lừa lật
+lừa lọc
+lừa mị
+lừa phỉnh
+lừa thầy phản bạn
+lửa
+lửa binh
+lửa cháy đổ thêm dầu
+lửa đạn
+lửa hương
+lửa trại
+lữa
+lứa
+lứa đôi
+lựa
+lựa chọn
+lựa gió phất cờ
+lực
+lực bất tòng tâm
+lực dịch
+lực điền
+lực kế
+lực lưỡng
+lực lượng
+lực lượng sản xuất
+lực lượng thứ ba
+lực lượng vũ trang
+lực sĩ
+lưng
+lưng chừng
+lưng lửng
+lưng lửng dạ
+lưng vốn
+lừng
+lừng chừng
+lừng danh
+lừng khà lừng khừng
+lừng khừng
+lừng lẫy
+lừng lững
+lửng
+lửng dạ
+lửng khửng
+lửng lơ
+lửng lơ con cá vàng
+lững chững
+lững lờ
+lững thững
+lựng
+lựng khựng
+lược
+lược bí
+lược dài
+lược dịch
+lược đồ
+lược giắt trâm cài
+lược khảo
+lược thao
+lược thuật
+lược thưa
+lười
+lười biếng
+lười chảy thây
+lười lĩnh
+lười nhác
+lưỡi
+lưỡi câu
+lưỡi dao cạo
+lưỡi gà
+lưỡi không xương
+lưỡi lê
+lưỡi liềm
+lưỡi trai
+lưới
+lưới điện
+lưới lửa
+lươm bươm
+lươm tươm
+lườm
+lườm nguýt
+lượm
+lượm lặt
+lươn
+lươn khươn
+lươn lẹo
+lươn ngắn chê chạch dài
+lươn ngắn lại chê chạch dài
+lườn
+lượn
+lượn lờ
+lương
+lương bổng
+lương dân
+lương duyên
+lương đống
+lương hướng
+lương khoán
+lương khô
+lương lậu
+lương sản phẩm
+lương tâm
+lương thảo
+lương thiện
+lương thực
+lương tri
+lương y
+lương y như từ mẫu
+lường
+lường đảo
+lường gạt
+lường thầy phản bạn
+lưỡng chiết
+lưỡng cư
+lưỡng cực
+lưỡng dụng
+lưỡng khả
+lưỡng lự
+lưỡng phân
+lưỡng quyền
+lưỡng thê
+lướng vướng
+lượng
+lượng định
+lượng giác
+lượng giác học
+lượng hoá
+lượng thứ
+lượng tình
+lượng tử
+lượng xét
+lướp tướp
+lướt
+lướt mướt
+lướt sóng
+lướt tha lướt thướt
+lướt thướt
+lướt ván
+lượt
+lượt đi
+lượt là
+lượt thà lượt thượt
+lượt thượt
+lượt về
+lưu
+lưu ban
+lưu bút
+lưu cầu
+lưu chiểu
+lưu chiếu
+lưu chuyển
+lưu cư
+lưu cữu
+lưu danh
+lưu dân
+lưu diễn
+lưu dung
+lưu dụng
+lưu đãng
+lưu đày
+lưu điện
+lưu động
+lưu giữ
+lưu hành
+lưu hoá
+lưu hoàng
+lưu học sinh
+lưu huyết
+lưu huỳnh
+lưu không
+lưu lạc
+lưu li
+lưu loát
+lưu luyến
+lưu lượng
+lưu ly
+lưu manh
+lưu nhiệm
+lưu niệm
+lưu niên
+lưu tán
+lưu tâm
+lưu tệ
+lưu thông
+lưu thuỷ
+lưu tốc
+lưu tồn
+lưu trú
+lưu truyền
+lưu trữ
+lưu vong
+lưu vực
+lưu ý
+lựu
+lựu đạn
+lựu pháp
+ly
+ly biệt
+ly dị
+ly gián
+ly hôn
+ly khai
+ly kỳ
+ly loạn
+ly tán
+ly tâm
+ly thân
+lý
+lý dịch
+lý do
+lý giải
+lý hào
+lý hương
+lý lẽ
+lý lịch
+lý liệu pháp
+lý luận
+lý số
+lý sự
+lý sự cùn
+lý tài
+lý thú
+lý thuyết
+lý thuyết tập hợp
+lý thuyết thông tin
+lý thuyết trò chơi
+lý thuyết tương đối
+lý thuyết xác suất
+lý tính
+lý trí
+lý trưởng
+lý tưởng
+lý tưởng hoá
+lỵ
+lỵ sở
