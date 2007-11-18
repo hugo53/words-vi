@@ -1363,3 +1363,79 @@ thày
 thày lay
 thảy
 thảy thảy
+thắc mắc
+thắc thỏm
+thăm
+thăm dò
+thăm hỏi
+thăm khám
+thăm nom
+thăm nuôi
+thăm thẳm
+thăm thú
+thăm ván bán quyền
+thăm viếng
+thẳm
+thắm
+thắm thiết
+thăn
+thằn lằn
+thăng
+thăng bằng
+thăng bình
+thăng đường
+thăng giáng
+thăng hà
+thăng hạng
+thăng hoa
+thăng quan tiến chức
+thăng thiên
+thăng thưởng
+thăng tiến
+thăng trầm
+thằng
+thằng cha
+thằng chả
+thằng thúc
+thẳng
+thẳng băng
+thẳng cánh
+thẳng cánh cò bay
+thẳng cẳng
+thẳng đuồn đuột
+thẳng đuỗn
+thẳng đuột
+thẳng đứng
+thẳng góc
+thẳng rẵng
+thẳng ruột ngựa
+thẳng tay
+thẳng tắp
+thẳng thắn
+thẳng thớm
+thẳng thừng
+thẳng tính
+thẳng tuồn tuột
+thắng
+thắng bại
+thắng cảnh
+thắng cử
+thắng địa
+thắng lợi
+thắng phụ
+thắng thầu
+thắng thế
+thắng tích
+thặng
+thặng dư
+thặng dư giá trị
+thắp
+thắt
+thắt buộc
+thắt cổ
+thắt cổ bồng
+thắt đáy lưng ong
+thắt lưng
+thắt lưng buộc bụng
+thắt ngặt
+thắt nút
