@@ -831,3 +831,57 @@ tẩy trừ
 tẩy uế
 tẩy xoá
 tấy
+TB
+TBT
+TCty
+TDTT
+tđd
+te
+te tái
+te te
+te tét
+te tua
+tè
+tè he
+tẻ
+tẻ lạnh
+tẻ ngắt
+tẻ nhạt
+tẽ
+té
+té ngửa
+té nước theo mưa
+té ra
+té re
+té sụm
+té tát
+téc
+Tel
+telephone
+teletyp
+telex
+tem
+tem thư
+tèm lem
+tèm nhèm
+tém
+ten
+ten-nít
+tẽn
+tẽn tò
+teng beng
+tennis
+teo
+teo tóp
+tẻo teo
+tẻo tèo teo
+téo
+tẹo
+tép
+tép riu
+tẹp nhẹp
+test
+tẹt
+tetanos
+tetracyclin
+tetraxiclin
