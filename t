@@ -497,3 +497,71 @@ tày đình
 tày liếp
 tày trời
 táy máy
+tắc
+tắc họng
+tắc kè
+tắc lưỡi
+tắc nghẽn
+tắc ráng
+tắc-te
+tắc tị
+tắc trách
+tắc-xi
+tặc lưỡi
+tăm
+tăm dạng
+tăm hơi
+tăm tắp
+tăm tia
+tăm tích
+tăm tiếng
+tăm tối
+tằm
+tằm tang
+tằm tơ
+tắm
+tắm giặt
+tắm gội
+tắm rửa
+tắm táp
+tằn tiện
+tẳn mẳn
+tăng
+tăng âm
+tăng bo
+tăng cường
+tăng đồ
+tăng gia
+tăng gia sản xuất
+tăng giá
+tăng-gô
+tăng lữ
+tăng ni
+tăng phòng
+tăng sản
+tăng tả
+tăng tiến
+tăng tốc
+tăng trọng
+tăng trưởng
+tăng viện
+tăng xê
+tằng hắng
+tằng tịu
+tằng tổ
+tặng
+tặng phẩm
+tặng thưởng
+tặng vật
+tắp
+tắp lự
+tắt
+tắt hơi
+tắt kinh
+tắt lửa tối đèn
+tắt mắt
+tắt ngấm
+tắt ngấm tắt ngầm
+tắt nghỉ
+tắt ngóm
+tắt thở
