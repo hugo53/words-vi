@@ -565,3 +565,269 @@ tắt ngấm tắt ngầm
 tắt nghỉ
 tắt ngóm
 tắt thở
+tấc
+tấc đất cắm dùi
+tấc đất tấc vàng
+tấc gang
+tấc lòng
+tấc riêng
+tấc son
+tấc thành
+tấc vàng
+tấc vuông
+tâm
+tâm bão
+tâm bệnh
+tâm cảm
+tâm can
+tâm cảnh
+tâm đắc
+tâm đầu ý hợp
+tâm địa
+tâm điểm
+tâm đối xứng
+tâm giao
+tâm hồn
+tâm huyết
+tâm hương
+tâm khảm
+tâm lí
+tâm lí chiến
+tâm lí học
+tâm linh
+tâm lực
+tâm lý
+tâm lý chiến
+tâm lý học
+tâm não
+tâm ngẩm
+tâm nguyện
+tâm nhang
+tâm nhĩ
+tâm niệm
+tâm phúc
+tâm phục
+tâm phục khẩu phục
+tâm sinh lí
+tâm sinh lý
+tâm sự
+tâm sức
+tâm tâm niệm niệm
+tâm thái
+tâm thành
+tâm thần
+tâm thần học
+tâm thất
+tâm thể
+tâm thế
+tâm thuật
+tâm thư
+tâm thức
+tâm tình
+tâm tính
+tâm trạng
+tâm trí
+tâm trường
+tâm tư
+tâm tưởng
+tầm
+tầm bậy
+tầm bậy tầm bạ
+tầm chương trích cú
+tầm cỡ
+tầm gởi
+tầm gửi
+tầm mắt
+tầm mức
+tầm nã
+tầm nhìn xa
+tầm phào
+tầm phơ
+tầm phơ tầm phào
+tầm quất
+tầm sét
+tầm súng
+tầm sư học đạo
+tầm tã
+tầm tầm
+tầm thước
+tầm thường
+tầm vóc
+tầm vông
+tầm xích
+tầm xuân
+tẩm
+tẩm bổ
+tẩm liệm
+tẩm ngẩm
+tẩm ngẩm tầm ngầm
+tẩm quất
+tấm
+tám bé
+tấm lợp
+tấm tắc
+tấm tức
+tậm tịt
+tân
+tân binh
+tân dược
+tân gia
+tân học
+tân hôn
+tân khách
+tân khoa
+tân khổ
+tân kì
+tân kỳ
+tân lang
+tân nghênh
+tân ngữ
+tân sinh
+tân tạo
+tân thời
+tân thư
+tân tiến
+tân toan
+tân trang
+Tân Ước
+tân văn
+tân xuân
+tần
+tần mần
+tần ngà tần ngần
+tần ngần
+tần phiền
+tần số
+tần suất
+tần tảo
+tần tiện
+tẩn
+tẩn mẩn
+tẩn mẩn tần mần
+tấn
+tấn công
+tấn phong
+tấn sĩ
+tấn tới
+tận
+tận cùng
+tận diệt
+tận dụng
+tận hưởng
+tận lực
+tận mắt
+tận số
+tận tay
+tận tâm
+tận thế
+tận thiện tận mĩ
+tận thiện tận mỹ
+tận thu
+tận tình
+tận trung
+tận tuỵ
+tận từ
+tận tường
+tâng
+tâng bốc
+tâng công
+tâng hẩng
+tâng tâng
+tầng
+tầng bậc
+tầng lớp
+tầng nấc
+tầng ozone
+tấp
+tấp nập
+tấp ta tấp tểnh
+tấp tểnh
+tập
+tập ấm
+tập dượt
+tập đại thành
+tập đoàn
+tập đoàn cứ điểm
+tập đoàn quân
+tập hậu
+tập họp
+tập hợp
+tập hợp con
+tập huấn
+tập kết
+tập kích
+tập luyện
+tập nhiễm
+tập quán
+tập quyền
+tập san
+tập sự
+tập tàng
+tập tành
+tập tễn
+tập thể
+tập thể dục
+tập thể hoá
+tập tin
+tập tính
+tập tõng
+tập tọng
+tập trận
+tập trung
+tập trung dân chủ
+tập trung tư bản
+tập tục
+tập vở
+tất
+tất bật
+tất cả
+tất lực
+tất nhiên
+tất niên
+tất ta tất tưởi
+tất tả
+tất tần tật
+tất tật
+tất thảy
+tất thắng
+tất tưởi
+tất yếu
+tật
+tật bệnh
+tật nguyền
+tâu
+tâu bày
+tầu
+tầu bay
+tẩu
+tẩu cẩu
+tẩu mã
+tẩu tán
+tẩu thoát
+tấu
+tậu
+tây
+tây bán cầu
+tây cung
+tây học
+tây lịch
+tây phương
+tây riêng
+tây thiên
+tây vị
+tây y
+tầy
+tầy đình
+tầy trời
+tẩy
+tẩy chay
+tẩy não
+tẩy oan
+tẩy rửa
+tẩy rửa tiền
+tẩy trang
+tẩy trần
+tẩy trừ
+tẩy uế
+tẩy xoá
+tấy
