@@ -1761,3 +1761,46 @@ thấy bà
 thấy kinh
 thấy mồ
 thấy tháng
+the
+the thé
+thè
+thè lè
+thẻ
+thẻ bài
+thẻ đỏ
+thẻ ghi nợ
+thẻ ngà
+thẻ thanh toán
+thẻ tín dụng
+thẻ vàng
+thẽ thọt
+thé
+thèm
+thèm khát
+thèm muốn
+thèm nhạt
+thèm thuồng
+thèm vào
+then
+then chốt
+thèn thẹn
+thẹn
+thẹn thò
+thẹn thùng
+theo
+theo dõi
+theo đòi
+theo đóm ăn tàn
+theo đuôi
+theo đuổi
+theo gót
+theo voi ăn bã mía
+thèo đảnh
+thẻo
+thẹo
+thép
+thép hợp kim
+thép không gỉ
+thét
+thét lác
+theta
