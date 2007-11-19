@@ -5547,3 +5547,84 @@ trống tuềnh trống toàng
 trống vắng
 trộng
 trốt
+trơ
+trơ khấc
+trơ lì
+trơ mắt
+trơ mắt ếch
+trơ thổ địa
+trơ tráo
+trơ trẽn
+trơ trọi
+trơ trơ
+trơ trụi
+trơ vơ
+trờ
+trờ trờ
+trở
+trở chứng
+trở dạ
+trở lại
+trở lực
+trở mặt
+trở mặt như bàn tay
+trở mình
+trở mùi
+trở nên
+trở ngại
+trở quẻ
+trở tay
+trở thành
+trở trời
+trớ
+trớ trêu
+trớ trinh
+trợ bút
+trợ cấp
+trợ chiến
+trợ động từ
+trợ giá
+trợ giảng
+trợ giáo
+trợ giúp
+trợ lí
+trợ lực
+trợ lý
+trợ sản
+trợ tá
+trợ thì
+trợ thính
+trợ thời
+trợ thủ
+trợ tim
+trợ từ
+trợ vốn
+trời
+trời bể
+trời biển
+trời có mắt
+trời đánh
+trời đánh không chết
+trời đánh thánh vật
+trời đất
+trời đất ơi
+trời già
+trời giáng
+trời ơi
+trời ơi đất hỡi
+trời sinh voi trời sinh cỏ
+trời trồng
+trời tru đất diệt
+trời xui đất khiến
+trơn
+trơn tru
+trơn tuột
+trớn
+trợn
+trợn trạo
+trợn trừng
+trợn trừng trợn trạc
+trợn trừng trợn trạo
+trớt
+trợt
+trợt lớt
