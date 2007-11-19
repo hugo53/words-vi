@@ -4721,3 +4721,235 @@ tợn
 tợn tạo
 tớp
 tợp
+TP
+tr
+tr. CN
+tra
+tra-côm
+tra cứu
+tra hỏi
+tra khảo
+tra tấn
+tra vấn
+tra xét
+trà
+trà dư tửu hậu
+trà đạo
+trà lá
+trà mi
+trà thất
+trà trộn
+trả
+trả bài
+trả bữa
+trả chậm
+trả đũa
+trả giá
+trả góp
+trả lời
+trả miếng
+trả nghĩa
+trả nủa
+trả phép
+trả thù
+trả treo
+trã
+trá
+trá hàng
+trá hình
+trác
+trác táng
+trác tuyệt
+trác việt
+trạc
+trách
+trách cứ
+trách mắng
+trách móc
+trách nào mà
+trách nhiệm
+tracom
+trai
+trai gái
+trai giới
+trai lơ
+trai phòng
+trai tài gái sắc
+trai tráng
+trai trẻ
+trải
+trải biết
+trải đời
+trải nghiệm
+trái
+trái cây
+trái chứng
+trái chứng trái thói
+trái cựa
+trái đào
+trái đất
+trái gió giở giời
+trái gió trở trời
+trái khoán
+trái khoáy
+trái lại
+trái mùa
+trái nắng trở trời
+trái nết
+trái ngang
+trái nghĩa
+trái ngược
+trái phá
+trái phép
+trái phiếu
+trái rạ
+trái tai
+trái tai gai mắt
+trái tim
+trái tính
+trái tính trái nết
+trái vụ
+trái xoan
+trại
+trại cải tạo
+trại giam
+trại hè
+trại mồ côi
+trại tập trung
+tràm
+trảm
+trảm quyết
+trám
+trạm
+trạm trưởng
+trạm xá
+tràn
+tràn cung mây
+tràn đầy
+tràn lan
+tràn ngập
+tràn trề
+trán
+trang
+trang âm
+trang bị
+trang chủ
+trang điểm
+trang hoàng
+trang kim
+trang lứa
+trang mục
+trang nghiêm
+trang nhã
+trang phục
+trang sức
+trang thiết bị
+trang trải
+trang trại
+trang trí
+trang trọng
+trang viên
+trang web
+tràng
+trạng đạc
+tràng giang đại hải
+tràng hạt
+tràng kỉ
+tràng kỷ
+tràng nhạc
+trảng
+tráng
+tráng ca
+tráng đinh
+tráng khí
+tráng kiện
+tráng lệ
+tráng miệng
+tráng niên
+tráng sĩ
+trạng
+trạng huống
+trạng mạo
+trạng nguyên
+trạng ngữ
+trạng sư
+trạng thái
+trạng từ
+tranh
+tranh ảnh
+tranh bá đồ vương
+tranh biện
+tranh cãi
+tranh chấp
+tranh cử
+tranh cường
+tranh dân gian
+tranh dầu
+tranh đấu
+tranh đồ hoạ
+tranh đua
+tranh giành
+tranh hoành tráng
+tranh hùng
+tranh khảm màu
+tranh khắc đồn
+tranh khắc gỗ
+tranh lụa
+tranh luận
+tranh phong
+tranh sơn dầu
+tranh sơn mài
+tranh sơn thuỷ
+tranh Tết
+tranh thần thoại
+tranh thở
+tranh thủ
+tranh thuỷ mạc
+tranh thuỷ mặc
+tranh tối tranh sáng
+tranh tôn giáo
+tranh truyện
+tranh tụng
+tranh tứ bình
+tranh tường
+trành
+tránh
+tránh mặt
+tránh né
+tránh tiếng
+tránh trớ
+tránh vỏ dưa gặp vỏ dừa
+tránh voi chẳng xấu mặt nào
+trạnh
+transistor
+tranzito
+trao
+trao đổi
+trao gửi
+trao tặng
+trao thân gửi phận
+trao trả
+trao tráo
+trao xương gửi thịt
+trào
+trào dâng
+trào lộng
+trào lưu
+trào phúng
+trảo nha
+tráo
+tráo chác
+tráo đổi
+tráo trâng
+tráo trở
+tráo trưng
+tráp
+trát
+trạt
+trạt vôi
+trau
+trau chuốt
+trau dồi
+trau giồi
+trảu
+trảy
