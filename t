@@ -5130,3 +5130,48 @@ trầy vi tróc vẩy
 trầy xước
 trẩy
 trẩy hội
+tre
+tre ấm bụi
+tre đằng ngà
+tre già măng mọc
+tre là ngà
+tre pheo
+tre trẻ
+trẻ
+trẻ cậy cha già cậy con
+trẻ chẳng tha già chẳng thương
+trẻ con
+trẻ em
+trẻ hoá
+trẻ không tha già không thương
+trẻ măng
+trẻ mỏ
+trẻ người non dạ
+trẻ nít
+trẻ ranh
+trẻ thơ
+trẻ trai
+trẻ trung
+trẽ
+trèm
+trẽn
+treo
+treo cổ
+treo đầu dê bán thịt chó
+treo giò
+treo mõm
+treo niêu
+trèo
+trèo cao ngã đau
+trèo đèo lội suối
+trèo trẹo
+tréo
+tréo giò
+tréo kheo
+tréo khoeo
+tréo mảy
+tréo ngoảy
+tréo ngoe
+trẹo
+trét
+trẹt
