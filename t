@@ -4665,3 +4665,59 @@ tột cùng
 tột đỉnh
 tột độ
 tột vời
+tơ
+tơ duyên
+tơ đồng
+tơ gốc
+tơ hào
+tơ hoá học
+tơ hồng
+tơ lòng
+tơ lơ mơ
+tơ lụa
+tơ mành
+tơ mành
+tơ mơ
+tơ rưng
+tơ tằm
+tơ tình
+tơ tóc
+tơ trúc
+tơ tưởng
+tơ vò
+tơ vương
+tờ
+tờ gấp
+tờ hoa
+tờ khải
+tờ mây
+tờ mờ
+tờ mờ đất
+tờ rơi
+tờ rời
+tờ-rớt
+tờ trình
+tở
+tở mở
+tớ
+tợ
+tợ hồ
+tơi
+tơi bời
+tơi tả
+tơi tới
+tời
+tới
+tới bến
+tới lui
+tới số
+tới tấp
+tới tới
+tởm
+tởm lợm
+tởn
+tớn tác
+tợn
+tợn tạo
+tớp
+tợp
