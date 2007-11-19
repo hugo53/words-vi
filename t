@@ -4953,3 +4953,80 @@ trau dồi
 trau giồi
 trảu
 trảy
+trắc
+trắc ẩn
+trắc bá
+trắc bách diệp
+trắc diện
+trắc đạc
+trắc địa
+trắc địa học
+trắc địa mỏ
+trắc lượng
+trắc nghiệm
+trắc thủ
+trắc trở
+trặc
+trăm
+trăm cay ngàn đắng
+trăm cay nghìn đắng
+trăm dâu đổ đầu tằm
+trăm hay không bằng tay quen
+trăm họ
+trăm năm
+trăm ngàn
+trăm nghìn
+trăm sự
+trăm thứ bà giằn
+trăm tuổi
+trăm voi khôn được bát nước xáo
+trằm
+trằm trồ
+trăn
+trăn trở
+trằn
+trằn trọc
+trăng
+trăng già
+trăng gió
+trăng hoa
+trăng khuyết
+trăng lưỡi liềm
+trăng mật
+trăng non
+trăng thanh gió mát
+trăng trắng
+trăng treo
+trăng tròn
+trăng trối
+trắng
+trắng án
+trắng bạch
+trắng bệch
+trắng bóc
+trắng bong
+trắng bốp
+trắng dã
+trắng đen
+trắng hếu
+trắng lôm lốp
+trắng lốp
+trắng mắt
+trắng muốt
+trắng ngà
+trắng ngần
+trắng nhởn
+trắng nõn
+trắng nuột
+trắng ởn
+trắng phau
+trắng phau phau
+trắng phếch
+trắng tay
+trắng tinh
+trắng toát
+trắng trẻo
+trắng trong
+trắng trơn
+trắng trợn
+trắng xoá
