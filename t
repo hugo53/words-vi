@@ -2359,3 +2359,174 @@ thóp
 thót
 thót tim
 thọt
+thô
+thô bạo
+thô bỉ
+thô chế
+thô kệch
+thô lậu
+thô lỗ
+thô lố
+thô mộc
+thô ráp
+thô sơ
+thô tháp
+thô thiển
+thô tục
+thô vụng
+thồ
+thổ
+thổ âm
+thổ canh
+thổ cẩm
+thổ công
+thổ cư
+thổ dân
+thổ địa
+thổ hào
+thổ huyết
+thổ lộ
+thổ mộ
+thổ mộc
+thổ nghi
+thổ ngơi
+thổ ngữ
+thổ nhưỡng
+thổ nhưỡng học
+thổ phỉ
+thổ phục linh
+thổ quan
+thổ sản
+thổ tả
+thổ thần
+thổ ti
+Thổ Tinh
+thổ trạch
+thổ trước
+thổ tù
+thổ ty
+thố
+thốc
+thốc tháo
+thộc
+thôi
+thôi miên
+thôi nôi
+thôi sơn
+thôi thì
+thôi thối
+thôi thúc
+thôi việc
+thổi
+thổi nấu
+thổi ngạt
+thổi phồng
+thối
+thối chí
+thối hoắc
+thối hoăng
+thối hôn
+thối lui
+thối nát
+thối tai
+thối tha
+thối thây
+thồm lồm
+thôn
+thôn ấp
+thôn bản
+thôn dã
+thôn dân
+thôn hương
+thôn nữ
+thôn ổ
+thôn quê
+thôn tính
+thôn trang
+thôn trưởng
+thôn xóm
+thồn
+thổn thức
+thỗn thện
+thốn
+thộn
+thông
+thông bạch
+thông báo
+thông bệnh
+thông cảm
+thông cáo
+thông cáo chung
+thông dâm
+thông dịch
+thông dịch viên
+thông dụng
+thông đạt
+thông điệp
+thông đồng
+thông đồng bén giọt
+thông gia
+thông gian
+thông hành
+thông hiểu
+thông hiếu
+thông hiệu
+thông kim bác cổ
+thông lại
+thông lệ
+thông lệnh
+thông lưng
+thông minh
+thông ngôn
+thông phán
+thông phong
+thông qua
+thông quan
+thông số
+thông suốt
+thông sử
+thông sức
+thông tầm
+thông tấn
+thông tấn xã
+thông thái
+thông thạo
+thông thoáng
+thông thốc
+thông thống
+thông thuộc
+thông thương
+thông thường
+thông tin
+thông tin đại chúng
+thông tin học
+thông tín viên
+thông tỏ
+thông tri
+thông tục
+thông tuệ
+thông tư
+thống
+thống chế
+thống đốc
+thống kê
+thống kê học
+thống khoái
+thống khổ
+thống lãnh
+thống lí
+thống lĩnh
+thống lý
+thống mạ
+thống nhất
+thống nhứt
+thống soái
+thống suất
+thống sứ
+thống thiết
+thống trị
+thống tướng
+thộp
+thốt
+thốt nhiên
+thốt nốt
