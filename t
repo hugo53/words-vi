@@ -5030,3 +5030,103 @@ trắng trong
 trắng trơn
 trắng trợn
 trắng xoá
+trâm
+trâm anh
+trâm bầu
+trầm
+trầm bổng
+trầm cảm
+trầm hà
+trầm hùng
+trầm hương
+trầm kha
+trầm lắng
+trầm lặng
+trầm luân
+trầm mặc
+trầm ngâm
+trầm ngư lạc nhạn
+trầm tích
+trầm tĩnh
+trầm trệ
+trầm trọng
+trầm trồ
+trầm tư
+trầm tư mặc tưởng
+trầm uất
+trẩm
+trẫm
+trẫm mình
+trậm trầy trậm trật
+trân
+trân châu
+trân châu lùn
+trân trọng
+trân trối
+trần
+trần ai
+trần bì
+trần duyên
+trần đời
+trần gian
+trần giới
+trần hoàn
+trần sì
+trần thế
+trần thiết
+trần thuật
+trần tình
+trần trùi trụi
+trần trụi
+trần truồng
+trần tục
+trấn
+trấn an
+trấn áp
+trấn át
+trấn giữ
+trấn lột
+trấn ngự
+trấn nhậm
+trấn thủ
+trấn tĩnh
+trận
+trận địa
+trận địa chiến
+trận đồ
+trận đồ bát quái
+trận mạc
+trận tiền
+trận tuyến
+trận vong
+trâng tráo
+trập
+trập trùng
+trật
+trật lất
+trật trà trật trưỡng
+trật trưỡng
+trật tự
+trâu
+trâu bò
+trâu buộc ghét trâu ăn
+trâu chậm uống nước đục
+trâu gié
+trâu ngố
+trâu ngựa
+trâu nước
+trâu quá sá mạ thì
+trầu
+trầu không
+trẩu
+trấu
+trây
+trây lười
+trây ì
+trầy
+trầy trật
+trầy trụa
+trầy vi tróc vẩy
+trầy xước
+trẩy
+trẩy hội
