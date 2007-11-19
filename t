@@ -5203,3 +5203,136 @@ trêu tức
 trếu tráo
 trệu
 trệu trạo
+tri âm
+tri ân
+tri châu
+tri giác
+tri hô
+tri huyện
+tri kỉ
+tri kỷ
+tri năng
+tri ngộ
+tri-ốt
+tri phủ
+tri thức
+trì
+trì độn
+trì hoãn
+trì kéo
+trì níu
+trì trệ
+trĩ
+trĩ mũi
+trí
+trí dục
+trí giả
+trí khôn
+trí lự
+trí lực
+trí mạng
+trí não
+trí năng
+trí nhớ
+trí óc
+trí sĩ
+trí thức
+trí trá
+trí tuệ
+trí tuệ nhân tạo
+trí tưởng
+trí xảo
+trị
+trị an
+trị giá
+trị liệu
+trị ngoại pháp quyền
+trị số
+trị sở
+trị sự
+trị thuỷ
+trị tội
+trị vì
+trỉa
+trích
+trích dẫn
+trích đoạn
+trích lập
+trích lục
+trích ngang
+trích yếu
+trịch thượng
+triền
+triền miên
+triển
+triển khai
+triển lãm
+triển vọng
+triện
+triêng
+triềng
+triết
+triết gia
+triết học
+triết lí
+triết lý
+triết nhân
+triệt
+triệt để
+triệt hạ
+triệt hồi
+triệt phá
+triệt sản
+triệt thoái
+triệt tiêu
+triều
+triều chính
+triều cống
+triều cường
+triều đại
+triều đình
+triều đường
+triều kiến
+triều nghi
+triều suy
+triều thần
+triệu
+triệu chứng
+triệu hồi
+triệu phú
+triệu tập
+trinh
+trinh bạch
+trinh nguyên
+trinh nữ
+trinh sát
+trinh sát viên
+trinh thám
+trinh thục
+trinh tiết
+trinh trắng
+trình
+trình báo
+trình bày
+trình bầy
+trình chiếu
+trình diễn
+trình diện
+trình duyệt
+trình dược viên
+trình độ
+trình làng
+trình soạn thảo
+trình tấu
+trình thức
+trình tự
+trịnh trọng
+triod
+trít
+trịt
+trìu mến
+trìu trĩu
+trĩu
+trĩu nặng
+trĩu trịt
+tríu
