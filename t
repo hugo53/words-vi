@@ -5628,3 +5628,259 @@ trợn trừng trợn trạo
 trớt
 trợt
 trợt lớt
+tru
+tru di
+tru di tam tộc
+tru tréo
+trù
+trù bị
+trù dập
+trù ẻo
+trù hoạch
+trù liệu
+trù mật
+trù phú
+trù tính
+trù trừ
+trù úm
+trủ
+trú
+trú ẩn
+trú chân
+trú ngụ
+trú phòng
+trú quán
+trú quân
+trú sở
+trụ
+trụ cột
+trụ sinh
+trụ sở
+trụ trì
+truân chiên
+truân chuyên
+truất
+truất phế
+trúc
+trúc bâu
+trúc chẻ ngói tan
+trúc đào
+trúc mai
+trúc sênh
+trúc tơi
+trúc trắc
+trục
+trục hoành
+trục lăn
+trục lợi
+trục quay
+trục trặc
+trục tung
+trục vít
+trục vớt
+trục xuất
+trục xuất cảnh ngoại
+trui
+trụi lủi
+trụi thui lủi
+trụi thùi lụi
+trumpet
+trùm
+trùm chăn
+trùm sò
+trùm sỏ
+trúm
+trụm
+trùn
+trung
+trung bình
+trung bình chủ nghĩa
+trung bình cộng
+trung bình nhân
+trung can
+trung cảnh
+trung cao
+trung cần
+trung cấp
+trung châu
+trung chính
+trung chuyển
+trung cổ
+trung du
+trung dung
+trung dũng
+trung đại
+trung điểm
+trung đoàn
+trung đoàn bộ
+trung đoàn trưởng
+trung đoạn
+trung độ
+trung đội
+trung đội trưởng
+trung gian
+trung hạn
+trung hậu
+trung hoà
+trung học
+trung học chuyên nghiệp
+trung học cơ sở
+trung học phổ thông
+trung hưng
+trung khoa
+trung khu
+trung kiên
+trung lập
+trung lập hoá
+trung liên
+trung liệt
+trung lộ
+trung lưu
+trung nghĩa
+trung nguyên
+trung niên
+trung nông
+trung nự
+trung phần
+trung phẫu
+trung phong
+trung quân
+trung quân ái quốc
+trung sĩ
+trung tá
+trung táo
+trung tâm
+trung tần
+trung thành
+trung thần
+trung thế kỉ
+trung thế kỷ
+trung thu
+trung thực
+trung tiện
+trung tín
+trung tính
+trung tố
+trung trinh
+trung trực
+trung tu
+trung tuần
+trung tuyến
+trung tướng
+trung uý
+trung ương
+trung ương tập quyền
+trung vệ
+trùng
+trùng cửu
+trùng dương
+trùng điệp
+trùng hợp
+trùng khơi
+trùng lắp
+trùng lặp
+trùng phùng
+trùng phương
+trùng roi
+trùng san
+trùng tang
+trùng triềng
+trùng trình
+trùng trục
+trùng trùng
+trùng trùng điệp điệp
+trùng tu
+trùng vi
+trũng
+trúng
+trúng cách
+trúng cử
+trúng độc
+trúng giá
+trúng gió
+trúng mánh
+trúng phóc
+trúng phong
+trúng quả
+trúng thầu
+trúng thực
+trúng thương
+trúng tủ
+trúng tuyển
+trụng
+truông
+truồng
+trust
+trút
+trụt
+truy
+truy bức
+truy cập
+truy cập ngẫu nhiên
+truy cập tuần tự
+truy cứu
+truy điệu
+truy đuổi
+truy ép
+truy hoan
+truy hoàn
+truy hỏi
+truy hô
+truy kích
+truy lãnh
+truy lĩnh
+truy lùng
+truy nã
+truy nguyên
+truy nhận
+truy nhập
+truy phong
+truy quét
+truy sát
+truy tặng
+truy tầm
+truy thu
+truy tìm
+truy tố
+truy vấn
+truy xét
+truy xuất
+truỵ lạc
+truỵ thai
+truỵ tim mạch
+truyền
+truyền bá
+truyền bảo
+truyền cảm
+truyền dẫn
+truyền đạo
+truyền đạt
+truyền đơn
+truyền giáo
+truyền hình
+truyền khẩu
+truyền kì
+truyền kiếp
+truyền kỳ
+truyền miệng
+truyền tải
+truyền thanh
+truyền thần
+truyền thông
+truyền thống
+truyền thụ
+truyền thuyết
+truyền tụng
+truyện
+truyện cổ
+truyện cổ tích
+truyện cười
+truyện dài
+truyện kí
+truyện ký
+truyện ngắn
+truyện nôm
+truyện phim
+truyện thơ
+truyện tranh
+truyện vừa
