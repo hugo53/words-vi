@@ -5336,3 +5336,102 @@ trĩu
 trĩu nặng
 trĩu trịt
 tríu
+trò
+trò chơi
+trò chuyện
+trò cười
+trò đời
+trò hề
+trò ma
+trò trống
+trò vè
+trỏ
+trọ
+trọ trẹ
+tróc
+tróc nã
+trọc
+trọc hếu
+trọc lóc
+trọc lốc
+trọc lông lốc
+trọc phú
+trọc tếch
+trọc tếu
+tròi
+trói
+trói buộc
+trói chân
+trói gà không chặt
+trói giật cánh khuỷu
+trói voi bỏ rọ
+trọi
+tròm trèm
+trõm
+trompet
+tròn
+tròn bóng
+tròn trặn
+trọn trịa
+tròn trĩnh
+tròn vo
+tròn xoay
+tròn xoe
+trọn
+trọn gói
+trọn vẹn
+trong
+trong ấm ngoài êm
+trong giá trắng ngần
+trong lành
+trong ngoài
+trong sạch
+trong sáng
+trong suốt
+trong trắng
+trong trẻo
+trong vắt
+trong veo
+tròng
+tròng đen
+tròng đỏ
+tròng ngao
+tròng trành
+tròng trắng
+trỏng
+tróng
+trọng
+trọng án
+trọng âm
+trọng bệnh
+trọng dụng
+trọng đãi
+trọng đại
+trọng điểm
+trọng hậu
+trọng hình
+trọng liên
+trọng lực
+trọng lượng
+trọng nể
+trọng nghĩa khinh tài
+trọng nhậm
+trọng phạm
+trọng pháo
+trọng tài
+trọng tải
+trọng tâm
+trọng thần
+trọng thể
+trọng thị
+trọng thương
+trọng thưởng
+trọng tội
+trọng trách
+trọng trấn
+trọng trường
+trọng vọng
+trọng yếu
+trót
+trót dại
+trót lọt
