@@ -5175,3 +5175,31 @@ tréo ngoe
 trẹo
 trét
 trẹt
+trê
+trề
+trễ
+trễ nải
+trễ phép
+trễ tràng
+trệ
+trệch
+trên
+trên cơ
+trên dưới
+trên đe dưới búa
+trên hết
+trên kính dưới nhường
+trên tài
+trển
+trết
+trệt
+trêu
+trêu chọc
+trêu chòng
+trêu gan
+trêu ghẹo
+trêu ngươi
+trêu tức
+trếu tráo
+trệu
+trệu trạo
