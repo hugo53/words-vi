@@ -5435,3 +5435,115 @@ trọng yếu
 trót
 trót dại
 trót lọt
+trô trố
+trổ
+trổ sanh
+trổ sinh
+trổ tài
+trỗ
+trố
+trộ
+trốc
+trôi
+trôi chảy
+trôi dạt
+trôi giạt
+trôi nổi
+trôi sông
+trôi sông lạc chợ
+trồi
+trồi sụt
+trổi
+trỗi
+trối
+trối chết
+trối già
+trối kệ
+trối trăng
+trội
+trội bật
+trộm
+trộm cắp
+trộm cắp như rươi
+trộm cướp
+trộm nghe
+trộm nghĩ
+trộm nhớ thầm yêu
+trộm phép
+trộm vía
+trôn
+trôn kim
+trôn ốc
+trốn
+trốn chúa lộn chồng
+trốn lính
+trốn nắng
+trốn phu
+trốn thuế
+trốn tránh
+trộn
+trộn trạo
+trông
+trông cậy
+trông chờ
+trông chừng
+trông coi
+trông đợi
+trông gà hoá cuốc
+trông giỏ bỏ thóc
+trông mặt đặt tên
+trông mặt mà bắt hình dong
+trông mong
+trông ngóng
+trông nom
+trông vời
+trồng
+trồng cây chuối
+trồng chuối
+trồng răng
+trồng tỉa
+trồng trỉa
+trồng trọt
+trồng trộng
+trống
+trống bản
+trống bỏi
+trống bộc
+trống bồng
+trống cái
+trống canh
+trống chầu
+trống cơm
+trống đại
+trống đánh xuôi kèn thổi ngược
+trống đồng
+trống ếch
+trống hoác
+trống hoang trống huých
+trống hốc
+trống hông hốc
+trống hơ trống hoác
+trống huếch
+trống huếch trống hoác
+trống huơ trống hoác
+trống khẩu
+trống không
+trống lệch
+trống lốc
+trống lổng
+trống mái
+trống mảnh
+trống ngực
+trống phách
+trống quân
+trống rỗn
+trống trải
+trống trếch
+trống trơ
+trống trơn
+trống tuếch
+trống tuếch trống toác
+trống tuềnh trống toàng
+trống vắng
+trộng
+trốt
