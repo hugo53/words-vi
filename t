@@ -5884,3 +5884,160 @@ truyện phim
 truyện thơ
 truyện tranh
 truyện vừa
+trừ
+trừ bì
+trừ bị
+trừ bỏ
+trừ bữa
+trừ diệt
+trừ gian
+trừ hao
+trừ khử
+trừ phi
+trừ tà
+trừ tịch
+trữ
+trữ kim
+trữ lượng
+trữ tình
+trứ danh
+trứ tác
+trự
+trưa
+trưa trật
+trưa trờ trưa trật
+trực
+trực ban
+trực cảm
+trực chỉ
+trực chiến
+trực diện
+trực giác
+trực giác luận
+trực giao
+trực hệ
+trực khuẩn
+trực nhật
+trực quan
+trực tâm
+trực thăng
+trực thăng vận
+trực thu
+trực thuộc
+trực tiếp
+trực tính
+trực tràng
+trực trùng
+trực tuyến
+trưng
+trưng bày
+trưng bầy
+trưng binh
+trưng cầu
+trưng cầu dân ý
+trưng cầu ý dân
+trưng dụng
+trưng khẩn
+trưng mua
+trưng tập
+trưng thầu
+trưng thu
+trưng vay
+trừng
+trừng giới
+trừng phạt
+trừng trị
+trừng trộ
+trừng trừng
+trứng
+trứng cá
+trứng chọi với đá
+trứng cuốc
+trứng để đầu đẳng
+trứng gà trứng vịt
+trứng khôn hơn rận
+trứng khôn hơn vịt
+trứng lộn
+trứng mà đòi khôn hơn vịt
+trứng nước
+trứng sáo
+trước
+trước bạ
+trước hết
+trước kia
+trước mắt
+trước nay
+trước nhất
+trước sau
+trước sau như một
+trước tác
+trước thuật
+trước tiên
+trườn
+trương
+trương lực
+trương mục
+trương tuần
+trường
+trường bách nghệ
+trường bay
+trường bắn
+trường binh
+trường ca
+trường chinh
+trường cửu
+trường đấu
+trường đoản cú
+trường đoạn
+trường độ
+trường đời
+trường đua
+trường giang đại hải
+trường giáo dưỡng
+trường học
+trường hợp
+trường kì
+trường kỉ
+trường kỳ
+trường kỷ
+trường ốc
+trường phái
+trường quay
+trường qui
+trường quy
+trường sinh
+trường sinh bất lão
+trường sinh bất tử
+trường sinh học
+trường sở
+trường thành
+trường thi
+trường thiên
+trường thọ
+trường tồn
+trường vốn
+trưởng
+trưởng đoàn
+trưởng đoàn ngoại giao
+trưởng giả
+trưởng lão
+trưởng nam
+trưởng nữ
+trưởng phòng
+trưởng thành
+trưởng thôn
+trưởng ti
+trưởng tộc
+trưởng tràng
+trưởng ty
+trướng
+trướng rủ màn che
+trượng
+trượng phu
+trượt
+trượt băng
+trượt giá
+trượt tuyết
+trừu
+trừu tượng
+trừu tượng hoá
