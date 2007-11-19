@@ -2241,3 +2241,121 @@ thiu
 thiu thiu
 thìu
 thỉu
+tho
+thò
+thò lò
+thỏ
+thỏ bạc
+thỏ đế
+thỏ lặn ác tà
+thỏ thẻ
+thó
+thọ
+thọ chế
+thọ chung
+thọ đường
+thọ giáo
+thọ giới
+thọ thai
+thọ tội
+thoa
+thoả
+thoả đáng
+thoả hiệp
+thoả mãn
+thoả nguyện
+thoả thê
+thoả thích
+thoả thuận
+thoả thuận khung
+thoả thuê
+thoả ước
+thoá mạ
+thoai thoải
+thoải
+thoải mái
+thoái
+thoái bộ
+thoái chí
+thoái hoá
+thoái hôn
+thoái lui
+thoái ngũ
+thoái thác
+thoái thủ
+thoái trào
+thoái vị
+thoại
+thoại kịch
+thoán đoạt
+thoán nghịch
+thoang thoảng
+thoảng
+thoáng
+thoáng đãng
+thoáng đạt
+thoáng khí
+thoát
+thoát li
+thoát ly
+thoát thai
+thoát thân
+thoát tục
+thoát trần
+thoát vị
+thoát xác
+thoát y vũ
+thoạt
+thoạt đầu
+thoạt kì thuỷ
+thoạt kỳ thuỷ
+thoạt tiên
+thoăn thoắt
+thoắng
+thoắt
+thóc
+thóc đâu bồ câu đấy
+thóc gạo
+thóc lúa
+thóc mách
+thọc
+thọc gậy bánh xe
+thọc léc
+thọc lét
+thọc sâu
+thoi
+thoi loi
+thoi thóp
+thoi thót
+thòi
+thòi lòi
+thỏi
+thói
+thói đời
+thói phép
+thói quen
+thói tật
+thói thường
+thói tục
+thom thóp
+thòm thèm
+thòm thòm
+thỏm
+thon
+thon lỏn
+thon thả
+thon thon
+thon thót
+thỏn mỏn
+thong dong
+thong manh
+thong thả
+thòng
+thòng lọng
+thõng
+thõng thẹo
+thõng thượt
+thóp
+thót
+thót tim
+thọt
