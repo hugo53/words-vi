@@ -1,20 +1,28 @@
 y
 y án
 y bạ
+y chang
 y cụ
+y đức
+y giới
 y hệt
 y học
 y khoa
 y lệnh
 y lí
+y lý
 y nguyên
 y như
 y như rằng
 y phục
+y quan
+y sì
 y sĩ
 u sinh
 y tá
 y tế
+y thuật
+y trang
 y viện
 y vụ
 y xá
@@ -46,7 +54,6 @@ y xá
 ý tưởng
 ý vị
 yard
-yd
 yen
 yểm
 yểm hộ
@@ -59,7 +66,9 @@ yếm thế
 yên
 yên ả
 yên ắng
+yên ấm
 yên bình
+yên bụng
 yên giấc
 yên giấc ngàn thu
 yên giấc nghìn thu
@@ -71,6 +80,7 @@ yên lặng
 yên lòng
 yên nghỉ
 yên ổn
+yên phận
 yên tâm
 yên thân
 yên tĩnh
@@ -80,6 +90,8 @@ yên vị
 yên vui
 yến
 yến anh
+yến ẩm
+yến mạch
 yến oanh
 yến sào
 yến tiệc
@@ -93,10 +105,14 @@ yết kiến
 yết thị
 yêu
 yêu cầu
+yêu chiều
 yêu chuộng
 yêu dấu
+yêu đào
+yêu đời
 yêu đương
 yêu kiều
+yêu kính
 yêu ma
 yêu mến
 yêu quái
@@ -107,8 +123,10 @@ yêu thuật
 yêu thương
 yêu tinh
 yêu vì
+yêu yếu
 yểu
 yểu điệu
+yểu điệu thục nữ
 yểu tử
 yểu tướng
 yếu
@@ -119,8 +137,10 @@ yếu hèn
 yếu kém
 yếu lĩnh
 yếu lược
+yếu mềm
 yếu nhân
 yếu ớt
 yếu thế
 yếu tố
+yếu xìu
 yoga
