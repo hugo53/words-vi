@@ -1,5 +1,6 @@
 x
 X
+x.
 X-quang
 xa
 xa bô chê
@@ -16,8 +17,10 @@ xa lạ
 xa lánh
 xa lắc
 xa lắc xa lơ
+xa lăng lắc
 xa lìa
 xa lộ
+xa lộ thông tin
 xa lông
 xa lơ xa lắc
 xa-mô-va
@@ -27,9 +30,8 @@ xa rời
 xa tanh
 xa tắp
 xa thẳm
+xa thơm gần thối
 xa tít
-xa tít mù tắp
-xa tít tắp
 xa trưởng
 xa vắng
 xa vời
@@ -40,16 +42,18 @@ xa xăm
 xa xẩn
 xa xỉ
 xa xỉ phẩm
+xa xót
 xa xôi
 xa xưa
 xà
+xà bần
 xà beng
 xà bông
 xà cạp
 xà cột
 xà cừ
 xà đơn
-xà gỗ
+xà gồ
 xà ích
 xà kép
 xà lách
@@ -64,6 +68,7 @@ xà rông
 xà tích
 xà xẻo
 xả
+xả đông
 xả hơi
 xả láng
 xả thân
@@ -73,6 +78,7 @@ xã đội
 xã giao
 xã hội
 xã hội chủ nghĩa
+xã hội đen
 xã hội hoá
 xã hội học
 xã luận
@@ -81,6 +87,7 @@ xã thuyết
 xã trưởng
 xã viên
 xá
+xá tội vong nhân
 xá xị
 xá xíu
 xạ
@@ -88,7 +95,7 @@ xạ giới
 xạ hương
 xạ kích
 xạ thủ
-xabôchê
+xạ trị
 xác
 xác chết
 xác đáng
@@ -100,6 +107,7 @@ xác như vờ
 xác suất
 xác thịt
 xác thực
+xác tín
 xác vờ
 xác xơ
 xạc
@@ -110,9 +118,9 @@ xài
 xài phí
 xải
 xái
-xalông
 xam
 xam xám
+xam xưa
 xàm xỡ
 xảm
 xám
@@ -120,7 +128,7 @@ xám ngắt
 xám ngoét
 xám xịt
 xạm
-xamôvasamovar
+xamôva
 xan-tô-nin
 xán
 xán lạn
@@ -130,23 +138,28 @@ xáng
 xanh
 xanh biếc
 xanh cỏ
-xanh dờn
 xanh-đi-ca
 xanh hoà bình
+xanh không thủng cá đi đằng nào
+xanh lam
 xanh lè
 xanh lét
 xanh lơ
+xanh lướt
 xanh mắt
 xanh mét
 xanh ngắt
+xanh om
 xanh rì
 xanh rờn
 xanh rớt
+xanh tuya
 xanh tươi
 xanh um
 xanh vỏ đỏ lòng
+xanh xanh
 xanh xao
-xanhđicasyndicat
+xanhđica
 xao
 xao động
 xao lãng
@@ -172,7 +185,6 @@ xạo
 xáp
 xáp lá cà
 xát
-xatanh
 xàu
 xay
 xay xát
@@ -184,20 +196,25 @@ xắc mắc
 xăm
 xăm xăm
 xăm xắm
+xăm xắn
 xăm xắp
+xăm xỉa
 xăm xúi
 xắm nắm
 xăn
 xắn móng lợn
 xắn váy quai cồng
 xăng
+xăng đan
 xăng văng
 xăng xái
 xăng xít
 xằng
 xằng bậy
 xằng xiên
+xằng xịt
 xẵng
+xắng xở
 xắp
 xắt
 xấc
@@ -207,6 +224,7 @@ xấc xược
 xâm
 xâm canh
 xâm chiếm
+xâm hại
 xâm lăng
 xâm lấn
 xâm lược
@@ -215,25 +233,32 @@ xâm nhiễm
 xâm phạm
 xâm thực
 xâm xẩm
+xâm xấp
 xầm xì
 xẩm
 xẩm xoan
 xấp
 xấp xỉ
+xấp xoã
+xập xè
 xập xệ
+xập xí xập ngầu
 xập xình
 xập xoè
+xất bất xang bang
 xâu
 xâu chuỗi
 xâu xé
 xầu
 xấu
 xấu bụng
+xấu chàng hổ ai
 xấu chơi
 xấu đói
 xấu hổ
 xấu số
 xấu tính
+xấu xa
 xấu xí
 xây
 xây cất
@@ -246,9 +271,10 @@ xây xát
 xây xẩm
 xẩy
 xe
-Xe
+xe bãi
 xe bò
 xe bọc thép
+xe bồn
 xe buýt
 xe ca
 xe cải tiến
@@ -266,6 +292,7 @@ xe đò
 xe gắn máy
 xe gíp
 xe hàng
+xe hoa
 xe hoả
 xe hòm
 xe hơi
@@ -273,6 +300,7 @@ xe jeep
 xe kéo
 xe khách
 xa lam
+xe lăn
 xe lăn đường
 xe loan
 xe lội nước
@@ -285,22 +313,25 @@ xe ngựa
 xe-non
 xe nôi
 xe nước
+xe ôm
 xe pháo
-xe quyệt
+xe quệt
 xe-re-nát
 xe song mã
 xe tải
 xe tay
 xe tăng
+xe téc
 xe thồ
 xe thổ mộ
+xè xè
 xẻ
 xé
 xé lẻ
 xé phay
 xé rào
 xé xác
-xelulocellulos
+xelulo
 xem
 xem bói
 xem chừng
@@ -309,35 +340,31 @@ xem mạch
 xem mặt
 xem ngày
 xem ra
+xem sóc
 xem tay
 xem tuổi
 xem tử vi
 xem tướng
 xem xét
-xeminaseminar
+xemina
 xen
+xen cài
 xen canh
+xen cư
 xen kẽ
 xen lẫn
-xen-lô
-xen-ti-
-xen-tim
 xèn xẹt
 xẻn lẻn
 xén
 xén tóc
 xèng
 xẻng
-xẻng lẻng
-xenlôvioloncello
 xenon
-xent
-xentơ
-xenti-
 xeo
+xeo xéo
 xèo
+xèo xèo
 xẻo
-xẽo
 xéo
 xẹo
 xẹo xọ
@@ -345,9 +372,11 @@ xép
 xép xẹp
 xẹp
 xẹp lép
-xerenatserenata
+xerenat
 xét
 xét duyệt
+xét định
+xét đoán
 xét hỏi
 xét lại
 xét nét
@@ -365,9 +394,12 @@ xề xệ
 xế
 xế bóng
 xế chiều
+xế lô
+xế tà
 xệ
 xếch
 xếch mé
+xếch mếch
 xệch
 xệch xạc
 xềm xệp
@@ -386,19 +418,16 @@ xếp hàng
 xếp hạng
 xếp xó
 xệp
-xêri
 xêu
 xều
 XHCN
 xi
-xi-béc-nê-tích
-xi-đa
 xi lanh
 xi líp
 xi măng
-xi-nê
+xi nê
 xi nhan
-xi phông
+xi-phông
 xi rô
 xi ta
 xì
@@ -406,26 +435,34 @@ xì căng đan
 xì dầu
 xì gà
 xì ke
+xì xà xì xồ
+xì xà xì xụp
 xì xào
 xì xằng
 xì xầm
 xì xèo
 xì xị
+xì xoẹt
+xì xòm
 xì xồ
+xì xục
 xì xụp
 xỉ
 xỉ vả
 xí
+xí bệt
 xí gạt
 xí nghiệp
+xí quách
+xí xa xí xờn
 xí xoá
-xí xố
+xí xổm
+xí xớn
 xị
 xìa
 xỉa
 xỉa xói
 xía
-xibecneticx
 xích
 xích đạo
 xích đông
@@ -438,10 +475,11 @@ xích thằng
 xích thố
 xích vệ
 xích xiềng
-xichlô
+xịch
 xiếc
 xiêm
 xiêm áo
+xiêm y
 xiểm nịnh
 xiên
 xiên khoai
@@ -457,47 +495,49 @@ xiết nợ
 xiêu
 xiêu bạt
 xiêu dạt
+xiêu giạt
 xiêu lòng
 xiêu tán
 xiêu vẹo
-xifôngsiphon
-xilanh
-xilip
-xim-pô-di-um
-ximăng
-ximpoziumsymposium
+xiêu xiêu
+xifông
+xim-pô-đi-um
+ximpozium
 xin
 xin âm dương
+xin đểu
 xin đi đằng đầu
 xin đủ
 xin lỗi
 xin quẻ
+xin xỉn
 xin xỏ
 xỉn
-xinê
+xịn
 xinh
 xinh đẹp
 xinh tươi
 xinh xắn
 xinh xẻo
-xinhan
-xiphôngsiphon
-xirô
+xinh xinh
+xình xịch
+xiphông
 xít
 xịt
-xita
 xìu
 xỉu
 xíu
-xíu mại
 xịu
+XML
+XNK
 XN
 xo
-xo-le-no-ít
 xo-nat
 xo ro
 xỏ
+xỏ chân lỗ mũi
 xỏ lá
+xỏ lá ba que
 xỏ mũi
 xỏ ngọt
 xỏ xiên
@@ -510,11 +550,16 @@ xoa dịu
 xoà
 xoã
 xoá
+xoá bỏ
+xoá đói giảm nghèo
+xoá mù
 xoà nhoà
+xoá sổ
 xoác
 xoạc
 xoai xoải
 xoài
+xoài cát
 xoài cơm
 xoài quéo
 xoài thanh ca
@@ -538,7 +583,7 @@ xoay xở
 xoáy
 xoáy ốc
 xoăn
-xoằn
+xoẳn
 xoắn
 xoắn khuẩn
 xoắn ốc
@@ -547,7 +592,9 @@ xoắn xít
 xoắn xuýt
 xóc
 xóc đĩa
+xóc xách
 xọc
+xọc xạch
 xoe
 xoè
 xoen xoét
@@ -564,31 +611,33 @@ xói
 xói lở
 xói móc
 xói mòn
-xolenoitsolenoid
 xom
 xóm
 xóm giềng
 xóm làng
+xóm liều
 xóm thôn
-xon
 xon xón
-xonatsonata
+xon xót
+xonat
 xong
 xong chuyện
+xong đời
 xong xả
 xong xuôi
 xõng
-xoongsoong
+xoong
+xóp xọp
 xọp
 xót
 xót ruột
 xót thương
 xót xa
 xô
+xô bát xô đũa
 xô bồ
 xô-đa
 xô đẩy
-xô-lê-nô-ít
 xô-nát
 xô viết
 xô xát
@@ -609,6 +658,7 @@ xôi
 xôi gấc
 xôi hỏng bỏng không
 xôi lúa
+xôi ngô
 xôi thịt
 xôi vò
 xôi xéo
@@ -617,6 +667,7 @@ xối
 xối xả
 xôm
 xôm trò
+xôm tụ
 xôm xốp
 xồm
 xồm xoàm
@@ -626,49 +677,46 @@ xồn xồn
 xốn
 xốn xang
 xộn rộn
-xônatsonata
+xônat
 xông
 xông đất
+xông hơi
 xông nhà
 xông pha
 xông xáo
+xông xênh
 xồng xộc
 xổng
 xổng xểnh
 xống
 xống áo
 xốp
+xốp xồm xộp
 xốp xộp
 xốt
 xốt vang
-xôviết
 xơ
 xơ cua
+xơ cứng
 xơ gan
 xơ hoá
 xơ múi
 xơ rơ
+xơ vữa
 xơ xác
 xờ xạc
 xở
 xớ rớ
-xơcua
 xơi
+xơi tái
 xơi xơi
 xởi
 xởi lởi
 xới
 xới xáo
-xờm
 xơn xớt
 xớt
-xta-to
-xtăng xin
-xtê-rê-ô
-xtốp
-strép-tô-mi-xin
-xtrết
-strích-nin
+xtăngxin
 xu
 xu chiêng
 xu hướng
@@ -687,7 +735,10 @@ xú uế
 xụ
 xua
 xua đuổi
+xua tan
 xuân
+xuân bất tái lai
+xuân đình
 xuân đường
 xuân huyên
 xuân nữ
@@ -707,6 +758,7 @@ xuất chúng
 xuất dương
 xuất đầu lộ diện
 xuất gia
+xuất giá
 xuất hành
 xuất hiện
 xuất huyết
@@ -729,6 +781,8 @@ xuất sắc
 xuất siêu
 xuất thân
 xuất thế
+xuất tinh
+xuất toán
 xuất trận
 xuất trình
 xuất xử
@@ -748,7 +802,6 @@ xúc xắc
 xúc xích
 xúc xiểm
 xục rục
-xuchiêng
 xuê
 xuê xoa
 xuề xoà
@@ -769,15 +822,13 @@ xúi giục
 xúi quẩy
 xụi
 xụi lơ
-xum xoe
 xum xuê
 xùm xoà
 xúm
 xúm đen xúm đỏ
+xúm đông xúm đỏ
 xúm xít
-xun-pha-mít
-xun-phát
-xun-phua
+xun xun xoe xoe
 xun xoe
 xung
 xung điện
@@ -804,25 +855,32 @@ xuôi chèo mát mái
 xuôi chiều
 xuôi ngược
 xuôi tai
+xuôi xị
 xuộm
 xuồng
+xuồng ba lá
 xuổng
 xuống
 xuống cân
 xuống cấp
 xuống dốc
 xuống đường
+xuống giống
 xuống lỗ
+xuống mã
 xuống nước
+xuống tay
 xuống thang
+xuống tóc
 xúp
 xúp lê
-xupap
+xupáp
 xút
 xuỳ
 xuý xoá
 xuya
 xuyên
+xuyên khung
 xuyên sơn
 xuyên tạc
 xuyên táo
@@ -836,10 +894,13 @@ xừ
 xử
 xử giảo
 xử lí
-xử lí từ xa
 xử lí văn bản
+xử lí từ xa
 xử lý
+xử lý văn bản
+xử lý từ xa
 xử quyết
+xử phạt
 xử sự
 xử thế
 xử thử
@@ -847,6 +908,7 @@ xử trảm
 xử trí
 xử tử
 xứ
+xứ đạo
 xứ sở
 xứ uỷ
 xự
@@ -855,10 +917,13 @@ xưa nay
 xức
 xực
 xưng
+xưng danh
+xưng đế
 xưng hô
 xưng hùng xưng bá
 xưng tội
 xưng tụng
+xưng vương
 xưng xuất
 xưng xưng
 xừng
@@ -867,6 +932,7 @@ xửng cồ
 xửng vửng
 xứng
 xứng đáng
+xứng đôi
 xước
 xước măng rô
 xược
@@ -878,7 +944,7 @@ xương cùng
 xương cụt
 xương đòn
 xương đồng da sắt
-xương hông
+xương mai
 xương máu
 xương quai xanh
 xương rồng
@@ -888,9 +954,13 @@ xương tuỷ
 xương xảu
 xương xẩu
 xương xóc
+xương xương
+xường xám
 xưởng
 xướng
 xướng âm
 xướng ca
+xướng ca vô loài
 xướng hoạ
-xướng xuất
+xướng ngôn viên
+xướng suất
