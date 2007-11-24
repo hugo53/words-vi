@@ -1,0 +1,18 @@
+#!/bin/bash
+
+usage() {
+	echo "Usage: makedist tag"
+	exit 1
+}
+
+[ -n "$1" -a -f .git/refs/tags/$1 ] || usage
+
+T=$1
+V=${T/v/}
+
+rm -f words-vi-$V.tar words-vi-$V.tar.gz words-vi-$V/ChangeLog words-vi-$V 2>/dev/null
+git archive --format=tar --prefix=words-vi-$V/ $T > words-vi-$V.tar
+[ -d words-vi-$V ] || mkdir words-vi-$V
+git shortlog $T > words-vi-$V/ChangeLog
+tar -rf words-vi-$V.tar words-vi-$V/ChangeLog
+gzip words-vi-$V.tar
