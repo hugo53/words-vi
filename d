@@ -1081,9 +1081,9 @@ dụ khị
 dùa
 dũa
 dục dặc
+dục năng
 dục tinh
 dục tốt bất đạt
-dục năng
 dục tính
 dục vọng
 duềnh

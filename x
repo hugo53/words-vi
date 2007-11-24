@@ -894,11 +894,11 @@ xừ
 xử
 xử giảo
 xử lí
-xử lí văn bản
 xử lí từ xa
+xử lí văn bản
 xử lý
-xử lý văn bản
 xử lý từ xa
+xử lý văn bản
 xử quyết
 xử phạt
 xử sự

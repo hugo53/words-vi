@@ -769,7 +769,7 @@ hết lẽ
 hết lòng
 hết lời
 hết mình
-hết múc
+hết mức
 hết mực
 hết nạc vạc đến xương
 hết nhẵn

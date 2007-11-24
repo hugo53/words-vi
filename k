@@ -120,6 +120,7 @@ kê biên
 kê khai
 kê kích
 kê môn
+kê-pi
 kê úm
 kề
 kề cà
@@ -153,7 +154,6 @@ kế tự
 kế vị
 kệ
 kệ nệ
-kê-pi
 kệ thây
 kệ xác
 kếch
@@ -221,8 +221,8 @@ kết từ
 kết ước
 kêu
 kêu ca
-kêu gào
 kêu cầu
+kêu gào
 kêu gọi
 kêu la
 kêu nài

@@ -826,10 +826,9 @@ lấy ngắn nuôi dài
 lấy rồi
 lấy thịt đè người
 lấy thúng úp voi
-LC
-lễ bạc lòng thành
 lậy
 lậy lục
+LC
 le
 le le
 le lé
@@ -935,6 +934,7 @@ lề mề
 lề thói
 lể
 lễ
+lễ bạc lòng thành
 lễ bái
 lễ đài
 lễ độ
