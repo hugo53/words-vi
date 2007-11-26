@@ -961,7 +961,7 @@ giằng xay
 giằng xé
 giắt
 giặt
-giặt giạ
+giặt gịa
 giặt giũ
 giặt khô
 giấc
