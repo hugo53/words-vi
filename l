@@ -993,7 +993,7 @@ lên thác xuống ghềnh
 lên tiếng
 lên voi xuống chó
 lên xe xuống ngựa
-lên chênh
+lênh chênh
 lênh đênh
 lênh kha lênh khênh
 lênh khênh
